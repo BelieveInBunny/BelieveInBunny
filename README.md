@@ -1,6 +1,6 @@
 ### Hi there, I'm Octavian - aka [BelieveInBunny][website] 👋 
 
-[![Website](https://img.shields.io/website?label=AnimeKuro.org&style=for-the-badge&url=https%3A%2F%2Fanimekuro.org)](https://animekuro.org)
+[![Website](https://img.shields.io/badge/AnimeKuro.Org-UP-yellow?style=for-the-badge&logo=appveyor)](https://animekuro.org)
 [![Twitter Follow](https://img.shields.io/twitter/follow/cRightsOrg?color=1DA1F2&logo=twitter&style=for-the-badge)](https://twitter.com/intent/follow?original_referer=https%3A%2F%2Fgithub.com%2FBelieveInBunny&screen_name=cRightsOrg)
 
 ## I'm a Guy, Pirate, Developer, and Helper!!
