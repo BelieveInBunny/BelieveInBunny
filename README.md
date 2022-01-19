@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [The Disastrous Life of Saiki K - Funny Moments #Part 2](https://www.youtube.com/watch?v=lMLJp1ALWlk)
 - [The Disastrous Life of Saiki K - Funny Moments #Part 1](https://www.youtube.com/watch?v=VRh25s4Qxqs)
 - [The Devil Is A Part Timer - Funny Moments - #Part 1](https://www.youtube.com/watch?v=YfvwpZsGjmM)
 - [Funny Moments from &quot;Run With The Wind&quot;](https://www.youtube.com/watch?v=iL6fmFTue_g)
 - [When you confess to your crush](https://www.youtube.com/watch?v=Z0Ep3RLu6_Q)
-- [Best Waifu Iroha Isshiki - Oregairu](https://www.youtube.com/watch?v=jyH7STMPOVM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
