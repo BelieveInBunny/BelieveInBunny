@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Best Waifu Iroha Isshiki - Oregairu](https://www.youtube.com/watch?v=jyH7STMPOVM)
 - [Cute Girl Wants to Go Inside Of You](https://www.youtube.com/watch?v=-1NhOq2xNb8)
 - [Wasteful Days Of High School Girl - Funny Moments #Part 1](https://www.youtube.com/watch?v=372SVagmnxs)
 - [That Time I Got Reincarnated As Slime Funny Moments - #Part 1](https://www.youtube.com/watch?v=4lVrZRqCBDo)
 - [The 10 Sexiest Kiss Scenes In Anime History](https://www.youtube.com/watch?v=5NqCoNV4F-w)
-- [Nii-san Wants You To Drink Her Bathwater](https://www.youtube.com/watch?v=34gqjeqShrw)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
