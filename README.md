@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Wasteful Days Of High School Girl - Funny Moments #Part 1](https://www.youtube.com/watch?v=372SVagmnxs)
+- [That Time I Got Reincarnated As Slime Funny Moments - #Part 1](https://www.youtube.com/watch?v=4lVrZRqCBDo)
 - [The 10 Sexiest Kiss Scenes In Anime History](https://www.youtube.com/watch?v=5NqCoNV4F-w)
 - [Nii-san Wants You To Drink Her Bathwater](https://www.youtube.com/watch?v=34gqjeqShrw)
 - [🥰 Ahh How Cute 😬](https://www.youtube.com/watch?v=j1O2h3AD4uE)
-- [Tatsumaki Meets Saitama](https://www.youtube.com/watch?v=0kHcjrbon6c)
-- [Top 10 Massacres in Anime of All Time!](https://www.youtube.com/watch?v=Z2N0vhgfz_Y)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
