@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [The Devil Is A Part Timer - Funny Moments - #Part 1](https://www.youtube.com/watch?v=YfvwpZsGjmM)
 - [Funny Moments from &quot;Run With The Wind&quot;](https://www.youtube.com/watch?v=iL6fmFTue_g)
 - [When you confess to your crush](https://www.youtube.com/watch?v=Z0Ep3RLu6_Q)
 - [Best Waifu Iroha Isshiki - Oregairu](https://www.youtube.com/watch?v=jyH7STMPOVM)
 - [Cute Girl Wants to Go Inside Of You](https://www.youtube.com/watch?v=-1NhOq2xNb8)
-- [Wasteful Days Of High School Girl - Funny Moments #Part 1](https://www.youtube.com/watch?v=372SVagmnxs)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
