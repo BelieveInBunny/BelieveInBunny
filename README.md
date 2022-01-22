@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [180 Byou De Kimi No Mimi Wo Shiawase Ni Dekiru Ka - Episode 10](https://www.youtube.com/watch?v=RexCZVk_NlU)
 - [Aho Girl - Funny Moments Compilation](https://www.youtube.com/watch?v=u0mEwJVM3ss)
 - [The Disastrous Life of Saiki K - Funny Moments #Part 2](https://www.youtube.com/watch?v=lMLJp1ALWlk)
 - [The Disastrous Life of Saiki K - Funny Moments #Part 1](https://www.youtube.com/watch?v=VRh25s4Qxqs)
 - [The Devil Is A Part Timer - Funny Moments - #Part 1](https://www.youtube.com/watch?v=YfvwpZsGjmM)
-- [Funny Moments from &quot;Run With The Wind&quot;](https://www.youtube.com/watch?v=iL6fmFTue_g)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
