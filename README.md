@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Barakamon - Funny Moments](https://www.youtube.com/watch?v=IEMSeyEKqrk)
 - [Assassination Classroom - Funny Moments](https://www.youtube.com/watch?v=GzrkAwJTSEE)
 - [Assassination Classroom - Funny Moments](https://www.youtube.com/watch?v=pUUqbraIAOY)
 - [Asobi Asobase - Funny Moments](https://www.youtube.com/watch?v=IkP28_-mjUI)
 - [Arifureta: From Commonplace to World&#39;s Strongest - Funny Moments](https://www.youtube.com/watch?v=MvxFf4-PMOA)
-- [Angel Beats - Funny Moments](https://www.youtube.com/watch?v=bXc0JgH-nzQ)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
