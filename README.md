@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama Season 02 - Funny Moments Part#3](https://www.youtube.com/watch?v=Pghp43x5Hpg)
 - [Gintama Season 02 - Funny Moments Part#2](https://www.youtube.com/watch?v=RKNKe03keMM)
 - [Gintama Season 02 - Funny Moments Part#1](https://www.youtube.com/watch?v=V2h0LbAqlS8)
 - [Gintama - Funny Moments Part#5](https://www.youtube.com/watch?v=8PFWJSmzVMM)
 - [Gintama - Funny Moments Part#4](https://www.youtube.com/watch?v=sS9OWBdqhlY)
-- [Gintama - Funny Moments Part#3](https://www.youtube.com/watch?v=iRBeWpzSSvI)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
