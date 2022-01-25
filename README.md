@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama - Funny Moments Part#5](https://www.youtube.com/watch?v=8PFWJSmzVMM)
 - [Gintama - Funny Moments Part#4](https://www.youtube.com/watch?v=sS9OWBdqhlY)
 - [Gintama - Funny Moments Part#3](https://www.youtube.com/watch?v=iRBeWpzSSvI)
 - [Gintama - Funny Moments Part#2](https://www.youtube.com/watch?v=TKOLQziHiM8)
 - [Gintama - Funny Moments Part#1](https://www.youtube.com/watch?v=LNR0_TQHOBs)
-- [Barakamon - Funny Moments](https://www.youtube.com/watch?v=IEMSeyEKqrk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
