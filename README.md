@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Maiko-san Chi no Makanai-san Opening](https://www.youtube.com/watch?v=9e3Nxyairjs)
 - [Mairimashita! Iruma-kun Cute ❤ &amp; Funny Moment](https://www.youtube.com/watch?v=tt5qO-C_Al0)
 - [Daily Lives of Highschool Boys - Funny Moments - Part#2](https://www.youtube.com/watch?v=40EAIQEOSTU)
 - [Daily Lives of Highschool Boys - Funny Moments - Part#1](https://www.youtube.com/watch?v=qsS1P2rkahg)
 - [Kanna/Tooru Cute Moments - Part#2](https://www.youtube.com/watch?v=BISyfljJ900)
-- [Same Anime Characters Voice Actress with Kobayashi-san Chi no Maid Dragon&#39;s Kanna Kamui](https://www.youtube.com/watch?v=xMDAqgzlakA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
