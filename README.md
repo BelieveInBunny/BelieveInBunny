@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Daily Lives of Highschool Boys - Funny Moments - Part#2](https://www.youtube.com/watch?v=40EAIQEOSTU)
 - [Daily Lives of Highschool Boys - Funny Moments - Part#1](https://www.youtube.com/watch?v=qsS1P2rkahg)
 - [Kanna/Tooru Cute Moments - Part#2](https://www.youtube.com/watch?v=BISyfljJ900)
 - [Same Anime Characters Voice Actress with Kobayashi-san Chi no Maid Dragon&#39;s Kanna Kamui](https://www.youtube.com/watch?v=xMDAqgzlakA)
 - [Ousama Ranking - Bojji Cute Moments](https://www.youtube.com/watch?v=pMuXPAk_gBU)
-- [Assassination Classroom - Funny Moments - Part#2](https://www.youtube.com/watch?v=t6sjm-ycqnM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
