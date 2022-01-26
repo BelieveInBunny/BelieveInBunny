@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Ousama Ranking - Bojji Cute Moments](https://www.youtube.com/watch?v=pMuXPAk_gBU)
 - [Assassination Classroom - Funny Moments - Part#2](https://www.youtube.com/watch?v=t6sjm-ycqnM)
 - [Gintama Season 02 - Funny Moments Part#3](https://www.youtube.com/watch?v=Pghp43x5Hpg)
 - [Gintama Season 02 - Funny Moments Part#2](https://www.youtube.com/watch?v=RKNKe03keMM)
 - [Gintama Season 02 - Funny Moments Part#1](https://www.youtube.com/watch?v=V2h0LbAqlS8)
-- [Gintama - Funny Moments Part#5](https://www.youtube.com/watch?v=8PFWJSmzVMM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
