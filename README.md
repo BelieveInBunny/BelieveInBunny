@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Nel - Green with Envy](https://www.youtube.com/watch?v=I_2WcY5ho8w)
 - [Nisekoi - Funny Moments - Part#1](https://www.youtube.com/watch?v=zV7YWc-gCWE)
 - [Mieruko-chan Ending Full | Mienaikara ne!?](https://www.youtube.com/watch?v=DRgNuPMVsdc)
 - [Miss Kobayashi&#39;s Dragon Maid&#39;s - Elma And Kobayashi](https://www.youtube.com/watch?v=pFJfE7MqZ2s)
 - [Maiko-san Chi no Makanai-san Opening](https://www.youtube.com/watch?v=9e3Nxyairjs)
-- [Mairimashita! Iruma-kun Cute ❤ &amp; Funny Moment](https://www.youtube.com/watch?v=tt5qO-C_Al0)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
