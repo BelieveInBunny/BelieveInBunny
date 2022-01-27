@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Saitama - Funny Moments - Part#2](https://www.youtube.com/watch?v=s_zLNlThaGA)
+- [Attack of the Gedo Statue ~ Naruto](https://www.youtube.com/watch?v=7aItNpxA10E)
 - [Saitama - Funny Moments - Part#1](https://www.youtube.com/watch?v=OY7VugmY1HI)
 - [Nozaki Kun - Funny Moments - Part#3](https://www.youtube.com/watch?v=s8msMvvkFnQ)
 - [Nozaki Kun - Funny Moments - Part#2](https://www.youtube.com/watch?v=rU_UBrX2HmQ)
-- [Nozaki Kun - Funny Moments - Part#1](https://www.youtube.com/watch?v=PqOzXcrX4Cg)
-- [Nel - Green with Envy](https://www.youtube.com/watch?v=I_2WcY5ho8w)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
