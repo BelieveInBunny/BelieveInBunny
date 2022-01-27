@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Miss Kobayashi&#39;s Dragon Maid&#39;s - Elma And Kobayashi](https://www.youtube.com/watch?v=pFJfE7MqZ2s)
 - [Maiko-san Chi no Makanai-san Opening](https://www.youtube.com/watch?v=9e3Nxyairjs)
 - [Mairimashita! Iruma-kun Cute ❤ &amp; Funny Moment](https://www.youtube.com/watch?v=tt5qO-C_Al0)
 - [Daily Lives of Highschool Boys - Funny Moments - Part#2](https://www.youtube.com/watch?v=40EAIQEOSTU)
 - [Daily Lives of Highschool Boys - Funny Moments - Part#1](https://www.youtube.com/watch?v=qsS1P2rkahg)
-- [Kanna/Tooru Cute Moments - Part#2](https://www.youtube.com/watch?v=BISyfljJ900)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
