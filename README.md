@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto and Killer Bee Vs. White Zetsu First Encounter](https://www.youtube.com/watch?v=NygO9JH5ZI8)
 - [Eat or be Eaten: Panic in the Forest ~ Naruto](https://www.youtube.com/watch?v=wvByWwQemG0)
 - [The Helmet Splitter  Jinin Akebino! ~ Naruto](https://www.youtube.com/watch?v=Dft8LEZCrVk)
 - [Aesthetics of an Artist ~ Naruto](https://www.youtube.com/watch?v=upJJv72qXLM)
 - [Saitama - Funny Moments - Part#2](https://www.youtube.com/watch?v=s_zLNlThaGA)
-- [Attack of the Gedo Statue ~ Naruto](https://www.youtube.com/watch?v=7aItNpxA10E)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
