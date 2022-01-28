@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [The Helmet Splitter  Jinin Akebino! ~ Naruto](https://www.youtube.com/watch?v=Dft8LEZCrVk)
 - [Aesthetics of an Artist ~ Naruto](https://www.youtube.com/watch?v=upJJv72qXLM)
 - [Saitama - Funny Moments - Part#2](https://www.youtube.com/watch?v=s_zLNlThaGA)
 - [Attack of the Gedo Statue ~ Naruto](https://www.youtube.com/watch?v=7aItNpxA10E)
 - [Saitama - Funny Moments - Part#1](https://www.youtube.com/watch?v=OY7VugmY1HI)
-- [Nozaki Kun - Funny Moments - Part#3](https://www.youtube.com/watch?v=s8msMvvkFnQ)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
