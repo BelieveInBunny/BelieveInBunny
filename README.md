@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Euphemia&#39;s Last Words ~ Death Scene | Code Geass](https://www.youtube.com/watch?v=cSDU6F7L5uA)
 - [An Old Nemesis Returns ~ The First and Last Opponent ~ Naruto](https://www.youtube.com/watch?v=OO4rpyqVzJE)
 - [Adults Only. We Wouldn&#39;t Want Anyone Immature In Here... ~ Gintama](https://www.youtube.com/watch?v=gh0Tb1Ch5eU)
 - [A person who gives a good first impression, can&#39;t be a decent fellow &lpar;第一印象がいい奴にロクな奴はいない, &rpar; ~ Gintama](https://www.youtube.com/watch?v=42H27dfDd9E)
 - [Naruto and Killer Bee Vs. White Zetsu First Encounter](https://www.youtube.com/watch?v=NygO9JH5ZI8)
-- [Eat or be Eaten: Panic in the Forest ~ Naruto](https://www.youtube.com/watch?v=wvByWwQemG0)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
