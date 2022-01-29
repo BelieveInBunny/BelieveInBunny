@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Operation Pacific Ocean Ambush | Code Geass](https://www.youtube.com/watch?v=gX16sSCsRsg)
 - [The Serpent&#39;s Pupil | Naruto](https://www.youtube.com/watch?v=aYbVUdeXqhE)
 - [Big Adventure! The Quest for the Fourth Hokage&#39;s Legacy | Naruto](https://www.youtube.com/watch?v=kUDvcyRwIvQ)
 - [Battle of Unraikyo ~ The Eight Tails VS Sasuke | Naruto](https://www.youtube.com/watch?v=XCRSaQziNSQ)
 - [Battle in Paradise! Odd Beast vs. The Monster! | Naruto Shippūden](https://www.youtube.com/watch?v=fKCCUUL6r7s)
-- [Euphemia&#39;s Last Words ~ Death Scene | Code Geass](https://www.youtube.com/watch?v=cSDU6F7L5uA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
