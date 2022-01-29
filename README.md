@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama - Funny Moments - All Season - Part#1](https://www.youtube.com/watch?v=sKsdOPhq9vI)
 - [A Shared Soup Pot Is A Microcosm Of Life - Gintama](https://www.youtube.com/watch?v=IFfPSxO8Jq0)
 - [Evangelion Episode 6: Decisive Battle in Tokyo-3](https://www.youtube.com/watch?v=Hzx90ELMS0U)
 - [Operation Pacific Ocean Ambush | Code Geass](https://www.youtube.com/watch?v=gX16sSCsRsg)
 - [The Serpent&#39;s Pupil | Naruto](https://www.youtube.com/watch?v=aYbVUdeXqhE)
-- [Big Adventure! The Quest for the Fourth Hokage&#39;s Legacy | Naruto](https://www.youtube.com/watch?v=kUDvcyRwIvQ)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
