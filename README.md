@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama - Funny Moments Part#6](https://www.youtube.com/watch?v=9owoyAUdLj4)
 - [naruto funny moments &lpar;english dub&rpar;](https://www.youtube.com/watch?v=WhWN1zB8nXc)
 - [Try Not to Laugh Compilation - Anime Moments - Part#2](https://www.youtube.com/watch?v=JoP6--nP1rs)
 - [Try Not to Laugh Compilation - Anime Moments - Part#1](https://www.youtube.com/watch?v=GHYbw4VkYfc)
 - [Mairimashita Iruma kun - Funny Moments &lpar;Season 1&rpar;](https://www.youtube.com/watch?v=IaCLXTk_7MQ)
-- [Mairimashita Iruma kun - Funny Moments &lpar;Season 2&rpar;](https://www.youtube.com/watch?v=wHBKdWwAWH4)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
