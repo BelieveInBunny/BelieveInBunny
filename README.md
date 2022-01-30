@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Try Not to Laugh Compilation - Anime Moments - Part#1](https://www.youtube.com/watch?v=GHYbw4VkYfc)
 - [Mairimashita Iruma kun - Funny Moments &lpar;Season 1&rpar;](https://www.youtube.com/watch?v=IaCLXTk_7MQ)
 - [Mairimashita Iruma kun - Funny Moments &lpar;Season 2&rpar;](https://www.youtube.com/watch?v=wHBKdWwAWH4)
 - [Fuuka uses death kiss on Naruto](https://www.youtube.com/watch?v=KM-ZD3W3TZI)
 - [Formation! ~ Kakashi Chronicles ~ Boys&#39; Life on the Battlefield - Naruto](https://www.youtube.com/watch?v=PPZUw3zK8fA)
-- [Eat or Die! Mushrooms from Hell ~ Revenge of the Shadow Clones - Naruto](https://www.youtube.com/watch?v=My_LcapyU_s)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
