@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Kakushigoto - Funny Moments](https://www.youtube.com/watch?v=M97P6fw7K14)
+- [Gintama - Funny Moments - All Season - Part#13](https://www.youtube.com/watch?v=zyhoZWC5XxM)
+- [Kaguya Sama - Love is War | Funny Moments](https://www.youtube.com/watch?v=9xbFRBcdTSw)
 - [Gintama - Funny Moments - All Season - Part#14](https://www.youtube.com/watch?v=pH-QV4qhvUY)
 - [Berserk 1997 &lpar;FULL&rpar;](https://www.youtube.com/watch?v=NCzOC3yXLrs)
-- [Gintama - Funny Moments - All Season - Part#11](https://www.youtube.com/watch?v=fkbm1M33rH0)
-- [Gintama - Funny Moments - All Season - Part#8](https://www.youtube.com/watch?v=9V5jbaBWSnE)
-- [Gintama - Funny Moments - All Season - Part#7](https://www.youtube.com/watch?v=rGxTX2PcVIU)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
