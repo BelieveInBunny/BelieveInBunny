@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama - Funny Moments - All Season - Part#14](https://www.youtube.com/watch?v=pH-QV4qhvUY)
+- [Berserk 1997 &lpar;FULL&rpar;](https://www.youtube.com/watch?v=NCzOC3yXLrs)
+- [Gintama - Funny Moments - All Season - Part#11](https://www.youtube.com/watch?v=fkbm1M33rH0)
 - [Gintama - Funny Moments - All Season - Part#8](https://www.youtube.com/watch?v=9V5jbaBWSnE)
 - [Gintama - Funny Moments - All Season - Part#7](https://www.youtube.com/watch?v=rGxTX2PcVIU)
-- [Gintama - Funny Moments - All Season - Part#10](https://www.youtube.com/watch?v=3jlJ9AAt1Z0)
-- [Gintama - Funny Moments - All Season - Part#9](https://www.youtube.com/watch?v=ORijtD4eRqo)
-- [Gintama - Funny Moments - All Season - Part#6](https://www.youtube.com/watch?v=jFJPjnxYmb8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
