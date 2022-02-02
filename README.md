@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Kakashi, My Eternal Rival! | Naruto](https://www.youtube.com/watch?v=EHYD_Phizm0)
 - [Kakushigoto - Funny Moments](https://www.youtube.com/watch?v=M97P6fw7K14)
 - [Gintama - Funny Moments - All Season - Part#13](https://www.youtube.com/watch?v=zyhoZWC5XxM)
 - [Kaguya Sama - Love is War | Funny Moments](https://www.youtube.com/watch?v=9xbFRBcdTSw)
 - [Gintama - Funny Moments - All Season - Part#14](https://www.youtube.com/watch?v=pH-QV4qhvUY)
-- [Berserk 1997 &lpar;FULL&rpar;](https://www.youtube.com/watch?v=NCzOC3yXLrs)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
