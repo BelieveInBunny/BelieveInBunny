@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama - Funny Moments - All Season - Part#15](https://www.youtube.com/watch?v=9R1rzoqRDFc)
 - [Kakashi, My Eternal Rival! | Naruto](https://www.youtube.com/watch?v=EHYD_Phizm0)
 - [Kakushigoto - Funny Moments](https://www.youtube.com/watch?v=M97P6fw7K14)
 - [Gintama - Funny Moments - All Season - Part#13](https://www.youtube.com/watch?v=zyhoZWC5XxM)
 - [Kaguya Sama - Love is War | Funny Moments](https://www.youtube.com/watch?v=9xbFRBcdTSw)
-- [Gintama - Funny Moments - All Season - Part#14](https://www.youtube.com/watch?v=pH-QV4qhvUY)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
