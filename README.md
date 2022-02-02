@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Kaginado Academy Carnival - Episode 11 - Part 2  &lpar;FULL&rpar;](https://www.youtube.com/watch?v=aZjhX7szSus)
 - [Gintama - Funny Moments - All Season - Part#16](https://www.youtube.com/watch?v=FqjeppZvHZU)
 - [Gintama - Funny Moments - All Season - Part#15](https://www.youtube.com/watch?v=9R1rzoqRDFc)
 - [Kakashi, My Eternal Rival! | Naruto](https://www.youtube.com/watch?v=EHYD_Phizm0)
 - [Kakushigoto - Funny Moments](https://www.youtube.com/watch?v=M97P6fw7K14)
-- [Gintama - Funny Moments - All Season - Part#13](https://www.youtube.com/watch?v=zyhoZWC5XxM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
