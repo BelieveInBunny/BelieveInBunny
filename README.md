@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Overly Cautious Hero Seiya Funny Moments](https://www.youtube.com/watch?v=YYq3dFsU7HY)
 - [Kaginado Academy Carnival - Episode 10  &lpar;FULL&rpar;](https://www.youtube.com/watch?v=3qk2oeqnUHo)
 - [Nozaki-Kun Funny Moments](https://www.youtube.com/watch?v=SWszdgaWs8M)
 - [Kanna - Kiss Me More](https://www.youtube.com/watch?v=-Qk-tsTeIpM)
 - [Kaginado Academy Carnival - Episode 11 - Part 2  &lpar;FULL&rpar;](https://www.youtube.com/watch?v=aZjhX7szSus)
-- [Gintama - Funny Moments - All Season - Part#16](https://www.youtube.com/watch?v=FqjeppZvHZU)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
