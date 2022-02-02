@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Mairimashita! Iruma-kun - Sukima | Part#1](https://www.youtube.com/watch?v=0v-LclbhcMg)
+- [One Day I&#39;ll Make You Fall Head Over Heels For Me](https://www.youtube.com/watch?v=ZwlZSA22Rvw)
 - [Overly Cautious Hero Seiya Funny Moments](https://www.youtube.com/watch?v=YYq3dFsU7HY)
 - [Kaginado Academy Carnival - Episode 10  &lpar;FULL&rpar;](https://www.youtube.com/watch?v=3qk2oeqnUHo)
 - [Nozaki-Kun Funny Moments](https://www.youtube.com/watch?v=SWszdgaWs8M)
-- [Kanna - Kiss Me More](https://www.youtube.com/watch?v=-Qk-tsTeIpM)
-- [Kaginado Academy Carnival - Episode 11 - Part 2  &lpar;FULL&rpar;](https://www.youtube.com/watch?v=aZjhX7szSus)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
