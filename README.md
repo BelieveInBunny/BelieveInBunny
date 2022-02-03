@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [A Bride in the Vermilion Forbidden City - Code Geass](https://www.youtube.com/watch?v=CZbxjYYpM4Q)
 - [Haikyuu Funny Moments](https://www.youtube.com/watch?v=0B1_LkzsJLc)
 - [Gutsy Master and Student  The Training ~ Record of the Ninja Gutsy Master and Student](https://www.youtube.com/watch?v=_Z7IyOGSqfQ)
 - [Naruto Shippuden 5x23 &quot;Shattered Promise&quot;](https://www.youtube.com/watch?v=aUZCXfye_3A)
 - [Hit Me Properly!! Asobi Asobase - Funny Moments](https://www.youtube.com/watch?v=rpCzImTN_ok)
-- [Episode 31 ~ Gintama](https://www.youtube.com/watch?v=jf9WpfhefIY)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
