@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Hit Me Properly!! Asobi Asobase - Funny Moments](https://www.youtube.com/watch?v=rpCzImTN_ok)
 - [Episode 31 ~ Gintama](https://www.youtube.com/watch?v=jf9WpfhefIY)
 - [Sullivan Got Arrested](https://www.youtube.com/watch?v=X0p1jlpm-AM)
 - [Mairimashita! Iruma-kun - Sukima | Part#1](https://www.youtube.com/watch?v=0v-LclbhcMg)
 - [One Day I&#39;ll Make You Fall Head Over Heels For Me](https://www.youtube.com/watch?v=ZwlZSA22Rvw)
-- [Overly Cautious Hero Seiya Funny Moments](https://www.youtube.com/watch?v=YYq3dFsU7HY)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
