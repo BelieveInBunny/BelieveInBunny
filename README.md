@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto Shippuden 5x23 &quot;Shattered Promise&quot;](https://www.youtube.com/watch?v=aUZCXfye_3A)
 - [Hit Me Properly!! Asobi Asobase - Funny Moments](https://www.youtube.com/watch?v=rpCzImTN_ok)
 - [Episode 31 ~ Gintama](https://www.youtube.com/watch?v=jf9WpfhefIY)
 - [Sullivan Got Arrested](https://www.youtube.com/watch?v=X0p1jlpm-AM)
 - [Mairimashita! Iruma-kun - Sukima | Part#1](https://www.youtube.com/watch?v=0v-LclbhcMg)
-- [One Day I&#39;ll Make You Fall Head Over Heels For Me](https://www.youtube.com/watch?v=ZwlZSA22Rvw)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
