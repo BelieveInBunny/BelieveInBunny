@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto Shippuden 8x22 &quot;Origin of Pain&quot;](https://www.youtube.com/watch?v=NXyIv3M7xIc)
 - [Naruto Shippuuden  | Best Moment ~ Man Kisame - Searching for Tsunade](https://www.youtube.com/watch?v=819fNjiDFH0)
 - [Naruto Shippuuden | Best Moment](https://www.youtube.com/watch?v=4NCvhElHbwA)
 - [Naruto&#39;s Favorite Pupil ~ Friends You Can Count On](https://www.youtube.com/watch?v=tTPJa57S9RI)
 - [Lelouch&#39;s Death | Code Geass](https://www.youtube.com/watch?v=7sHGI-DfrXM)
-- [Land Ahoy! Is this the Island of Paradise? | Naruto](https://www.youtube.com/watch?v=_7OMZLzxU24)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
