@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Island of the Gods ~ Battle for Kyushu ~ Declaration at the School Festival](https://www.youtube.com/watch?v=9SKKCQuIxR4)
 - [Iruka&#39;s Ordeal and Decision ~ Kakashi Hatake, The Jonin in Charge](https://www.youtube.com/watch?v=ObU9Xt4VTF0)
 - [A Bride in the Vermilion Forbidden City - Code Geass](https://www.youtube.com/watch?v=CZbxjYYpM4Q)
 - [Haikyuu Funny Moments](https://www.youtube.com/watch?v=0B1_LkzsJLc)
 - [Gutsy Master and Student  The Training ~ Record of the Ninja Gutsy Master and Student](https://www.youtube.com/watch?v=_Z7IyOGSqfQ)
-- [Naruto Shippuden 5x23 &quot;Shattered Promise&quot;](https://www.youtube.com/watch?v=aUZCXfye_3A)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
