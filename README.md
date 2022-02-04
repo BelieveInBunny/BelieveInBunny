@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Land Ahoy! Is this the Island of Paradise? | Naruto](https://www.youtube.com/watch?v=_7OMZLzxU24)
 - [Naberius Kalego - Mairimashita! Iruma-kun Cool Funny Moments](https://www.youtube.com/watch?v=ukg3rtVVcIE)
 - [Kaginado - Episode 12 &lpar;FULL&rpar;](https://www.youtube.com/watch?v=74ic-GdLjbE)
 - [Naruto was quarantined at all costs before he can infect anyone else](https://www.youtube.com/watch?v=ucPDuNl_mIk)
 - [Island of the Gods ~ Battle for Kyushu ~ Declaration at the School Festival](https://www.youtube.com/watch?v=9SKKCQuIxR4)
-- [Iruka&#39;s Ordeal and Decision ~ Kakashi Hatake, The Jonin in Charge](https://www.youtube.com/watch?v=ObU9Xt4VTF0)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
