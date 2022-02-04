@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto&#39;s Favorite Pupil ~ Friends You Can Count On](https://www.youtube.com/watch?v=tTPJa57S9RI)
 - [Lelouch&#39;s Death | Code Geass](https://www.youtube.com/watch?v=7sHGI-DfrXM)
 - [Land Ahoy! Is this the Island of Paradise? | Naruto](https://www.youtube.com/watch?v=_7OMZLzxU24)
 - [Naberius Kalego - Mairimashita! Iruma-kun Cool Funny Moments](https://www.youtube.com/watch?v=ukg3rtVVcIE)
 - [Kaginado - Episode 12 &lpar;FULL&rpar;](https://www.youtube.com/watch?v=74ic-GdLjbE)
-- [Naruto was quarantined at all costs before he can infect anyone else](https://www.youtube.com/watch?v=ucPDuNl_mIk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
