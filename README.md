@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto Shippuuden | Sasuke Appears ~ The Power of the Uchiha](https://www.youtube.com/watch?v=YcGBH7a-MRM)
+- [Naruto Shippuden | Shunkan no bigaku](https://www.youtube.com/watch?v=D0Sdnb81hYM)
 - [Naruto Shippuuden | Hiruko VS Two Kunoichi! ~ Full Fight](https://www.youtube.com/watch?v=8oBeswechYA)
 - [Naruto Shippuuden | Nine-Tails Unleashed!](https://www.youtube.com/watch?v=hjO9fgaNudA)
 - [Naruto Shippuuden | Sasori VS Kankuro ~ Full Fight](https://www.youtube.com/watch?v=d5IcWBFT4OA)
-- [Naruto Shippuden - Pain to the World](https://www.youtube.com/watch?v=xIBoqfmfNVM)
-- [Naruto Shippuuden | Danzō Shimura](https://www.youtube.com/watch?v=V-8HrM7J1aM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
