@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto Shippuuden | Hiruko VS Two Kunoichi! ~ Full Fight](https://www.youtube.com/watch?v=8oBeswechYA)
 - [Naruto Shippuuden | Nine-Tails Unleashed!](https://www.youtube.com/watch?v=hjO9fgaNudA)
 - [Naruto Shippuuden | Sasori VS Kankuro ~ Full Fight](https://www.youtube.com/watch?v=d5IcWBFT4OA)
 - [Naruto Shippuden - Pain to the World](https://www.youtube.com/watch?v=xIBoqfmfNVM)
 - [Naruto Shippuuden | Danzō Shimura](https://www.youtube.com/watch?v=V-8HrM7J1aM)
-- [Naruto Shippuden 8x22 &quot;Origin of Pain&quot;](https://www.youtube.com/watch?v=NXyIv3M7xIc)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
