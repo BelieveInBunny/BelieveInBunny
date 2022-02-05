@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Mairimashita! Iruma-kun - Sukima | Part#2](https://www.youtube.com/watch?v=bq4y4tm7hr0)
+- [Naruto | stood in front of the Raikage and begged him to forgive Sasuke ~ Painful Decision](https://www.youtube.com/watch?v=-P24nUA3h1A)
 - [Naruto Shippuuden | Sasuke Appears ~ The Power of the Uchiha](https://www.youtube.com/watch?v=YcGBH7a-MRM)
 - [Naruto Shippuden | Shunkan no bigaku](https://www.youtube.com/watch?v=D0Sdnb81hYM)
 - [Naruto Shippuuden | Hiruko VS Two Kunoichi! ~ Full Fight](https://www.youtube.com/watch?v=8oBeswechYA)
-- [Naruto Shippuuden | Nine-Tails Unleashed!](https://www.youtube.com/watch?v=hjO9fgaNudA)
-- [Naruto Shippuuden | Sasori VS Kankuro ~ Full Fight](https://www.youtube.com/watch?v=d5IcWBFT4OA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
