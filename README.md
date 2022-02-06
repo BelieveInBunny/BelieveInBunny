@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto Shippuden | Sasuke VS Itachi Fight](https://www.youtube.com/watch?v=PgUq6aU-n0Y)
 - [Naruto Shippuden | The Long-Awaited Reunion](https://www.youtube.com/watch?v=rJVXxAdbI9k)
 - [Naruto Shippuden | Everyone&#39;s Struggle to the Death](https://www.youtube.com/watch?v=ch0fGF65iOY)
 - [Naruto Shippuuden | Tenchi Bridge Reconnaissance Mission](https://www.youtube.com/watch?v=ee0pNYarkK8)
 - [Mairimashita! Iruma-kun - Sukima | Part#2](https://www.youtube.com/watch?v=bq4y4tm7hr0)
-- [Naruto | stood in front of the Raikage and begged him to forgive Sasuke ~ Painful Decision](https://www.youtube.com/watch?v=-P24nUA3h1A)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
