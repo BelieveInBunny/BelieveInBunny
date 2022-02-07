@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama | Funny Moments - trying to burn old JUMP, Gintoki is captured](https://www.youtube.com/watch?v=pZNpxvIL5LE)
 - [Gintama - Funny Moments Part#8](https://www.youtube.com/watch?v=gtWF1-cjRr0)
 - [Gintama - Funny Moments | Stuck in the Public Bath with Hedoro](https://www.youtube.com/watch?v=WdMU-gXcZnI)
 - [Naruto Shippuden | The Man Who Became God ~ Honored Sage Mode!](https://www.youtube.com/watch?v=zoKFg-70Jsc)
 - [Naruto Shippuden | Itachi Pursuit Mission](https://www.youtube.com/watch?v=PFS8xBjIXII)
-- [Naruto Shippuden | Fated Battle Between Brothers](https://www.youtube.com/watch?v=QrBrvnxZuDo)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
