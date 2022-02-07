@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto Shippuden | Paradise on Water](https://www.youtube.com/watch?v=oPJXZX5a_FI)
 - [Gintama - Funny Moments ~ 9 + 1 = Yagyuu Jyuubei](https://www.youtube.com/watch?v=ya64WrP9jQo)
 - [Naruto Shippuden | Five Kage Summit](https://www.youtube.com/watch?v=zkIM8feINlo)
 - [Naruto | Sora&#39;s Insults Precipitate A Brawl](https://www.youtube.com/watch?v=PJc6V7zpPCY)
 - [Sakura near death ~ The Burden and Two Fates](https://www.youtube.com/watch?v=UGE8riP5A9A)
-- [Sasuke&#39;s Ninja Way ~ Power of the Five Kage](https://www.youtube.com/watch?v=9roUMGV36b0)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
