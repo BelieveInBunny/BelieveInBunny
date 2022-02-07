@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Code Geass | The Day a New Demon was Born ~ The White Knight Awakens](https://www.youtube.com/watch?v=iCb_QnHosBg)
+- [Gintama - Funny Moments - A Begirama Summer ~ Traditional Watermelon Smashing](https://www.youtube.com/watch?v=QFxVMuLyFHM)
 - [Gintama - Funny Moments - Kagura harassing Gintoki and Shinpachi through text messaging](https://www.youtube.com/watch?v=X_HRX6eXnOI)
 - [Gintama | Funny Moments - The difference between perseverance and obstinacy is paper thin](https://www.youtube.com/watch?v=iTm5zV3xkCg)
 - [Gintama - Funny Moments - Guys With Big Nostrils Also Have Big Imaginations](https://www.youtube.com/watch?v=SgJ-vn5CBUE)
-- [Naruto Shippuden | The Tailed Beast Vs The Tailless Tailed Beast ~ As One&#39;s Friend](https://www.youtube.com/watch?v=NcoBEvjEwD0)
-- [Gintama - Funny Moments Part#9](https://www.youtube.com/watch?v=-n7a8SfQSF0)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
