@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama - Funny Moments - Kagura harassing Gintoki and Shinpachi through text messaging](https://www.youtube.com/watch?v=X_HRX6eXnOI)
+- [Gintama | Funny Moments - The difference between perseverance and obstinacy is paper thin](https://www.youtube.com/watch?v=iTm5zV3xkCg)
+- [Gintama - Funny Moments - Guys With Big Nostrils Also Have Big Imaginations](https://www.youtube.com/watch?v=SgJ-vn5CBUE)
 - [Naruto Shippuden | The Tailed Beast Vs The Tailless Tailed Beast ~ As One&#39;s Friend](https://www.youtube.com/watch?v=NcoBEvjEwD0)
 - [Gintama - Funny Moments Part#9](https://www.youtube.com/watch?v=-n7a8SfQSF0)
-- [Naruto Shippuden | The Man Who Died Twice ~ The Worst Three Legged Race](https://www.youtube.com/watch?v=9JdsC6ngiKI)
-- [Gintama | Funny Moments - trying to burn old JUMP, Gintoki is captured](https://www.youtube.com/watch?v=pZNpxvIL5LE)
-- [Gintama - Funny Moments Part#8](https://www.youtube.com/watch?v=gtWF1-cjRr0)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
