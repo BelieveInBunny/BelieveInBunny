@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama - Funny Moments Part#9](https://www.youtube.com/watch?v=-n7a8SfQSF0)
 - [Naruto Shippuden | The Man Who Died Twice ~ The Worst Three Legged Race](https://www.youtube.com/watch?v=9JdsC6ngiKI)
 - [Gintama | Funny Moments - trying to burn old JUMP, Gintoki is captured](https://www.youtube.com/watch?v=pZNpxvIL5LE)
 - [Gintama - Funny Moments Part#8](https://www.youtube.com/watch?v=gtWF1-cjRr0)
 - [Gintama - Funny Moments | Stuck in the Public Bath with Hedoro](https://www.youtube.com/watch?v=WdMU-gXcZnI)
-- [Naruto Shippuden | The Man Who Became God ~ Honored Sage Mode!](https://www.youtube.com/watch?v=zoKFg-70Jsc)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
