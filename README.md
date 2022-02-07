@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto Shippuden | The Man Who Became God ~ Honored Sage Mode!](https://www.youtube.com/watch?v=zoKFg-70Jsc)
+- [Naruto Shippuden | Itachi Pursuit Mission](https://www.youtube.com/watch?v=PFS8xBjIXII)
 - [Naruto Shippuden | Fated Battle Between Brothers](https://www.youtube.com/watch?v=QrBrvnxZuDo)
 - [Gintama - Funny Moments | Song of Samurai ~ The Two Fools](https://www.youtube.com/watch?v=7IFZ9h0vBjc)
 - [Naruto Shippuden | The Young Man and the Sea](https://www.youtube.com/watch?v=_rJW7iH4MNo)
-- [Gintama - Funny Moments | The Shogun goes missing](https://www.youtube.com/watch?v=iY-RZI5U2ds)
-- [Naruto Shippuden | The Successor&#39;s Wish ~ Rogue Ninja&#39;s Past ~ The Heir to Darkness](https://www.youtube.com/watch?v=CMFSEySi9GA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
