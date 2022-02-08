@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto Shippuden | The Bridge to Peace ~ The Super Secret S Rank Mission](https://www.youtube.com/watch?v=VDSC8bMEnP8)
 - [Code Geass | The Day a Demon Awakens ~ Plan For Independent Japan ~ Imprisoned in Campus](https://www.youtube.com/watch?v=yRtj2H_yblo)
 - [Gintama - Funny Moments - I&#39;m Yorozuya and He&#39;s Shinsengumi](https://www.youtube.com/watch?v=cdg5LAN4clc)
 - [Code Geass | The Day a New Demon was Born ~ The White Knight Awakens](https://www.youtube.com/watch?v=iCb_QnHosBg)
 - [Gintama - Funny Moments - A Begirama Summer ~ Traditional Watermelon Smashing](https://www.youtube.com/watch?v=QFxVMuLyFHM)
-- [Gintama - Funny Moments - Kagura harassing Gintoki and Shinpachi through text messaging](https://www.youtube.com/watch?v=X_HRX6eXnOI)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
