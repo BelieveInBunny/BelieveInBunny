@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama | Funny Moments - Sadaharu Gets Serious](https://www.youtube.com/watch?v=9iJiA7WIqRs)
 - [Gintama | Funny Moments - Pets Resemble Their Owners ~ Earn Rent From Your Pet](https://www.youtube.com/watch?v=sij5hlDuj28)
 - [Gintama | Funny Moments - On a Moonless Night, Insects Are Drawn to the Light](https://www.youtube.com/watch?v=1mZ_-5LNPYM)
 - [Gintama | Funny Moments - Keep Your Promise Even If It Kills You](https://www.youtube.com/watch?v=tO8ttTf6dj0)
 - [Gintama - Funny Moments - Will they regain their gender](https://www.youtube.com/watch?v=FTxlsv-n9_k)
-- [Gintama | Funny Moments - Shinsengumi&#39;s base is haunted by ghost](https://www.youtube.com/watch?v=HYNxXFMEOdw)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
