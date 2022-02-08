@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama | Funny Moments - Keep Your Promise Even If It Kills You](https://www.youtube.com/watch?v=tO8ttTf6dj0)
 - [Gintama - Funny Moments - Will they regain their gender](https://www.youtube.com/watch?v=FTxlsv-n9_k)
 - [Gintama | Funny Moments - Shinsengumi&#39;s base is haunted by ghost](https://www.youtube.com/watch?v=HYNxXFMEOdw)
 - [Gintama - Funny Moments - The Rescue Mission ~ Lost and Found](https://www.youtube.com/watch?v=OM3eJYIpd04)
 - [Naruto Shippuden | The Bridge to Peace ~ The Super Secret S Rank Mission](https://www.youtube.com/watch?v=VDSC8bMEnP8)
-- [Code Geass | The Day a Demon Awakens ~ Plan For Independent Japan ~ Imprisoned in Campus](https://www.youtube.com/watch?v=yRtj2H_yblo)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
