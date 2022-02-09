@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [GOBLIN SLAYER Season 2   Official Teaser](https://www.youtube.com/watch?v=PwjDY8I-284)
+- [【FGO】CM集 第1部〜第2部【Fate Grand Order】](https://www.youtube.com/watch?v=gMSUi6o7BY4)
+- [The Quintessential Quintuplets Movie   Official Teaser Trailer](https://www.youtube.com/watch?v=el11W14OlRs)
 - [Gintama | Funny Moments - Marriage Is Prolonging an Illusion for Your Whole Life](https://www.youtube.com/watch?v=EovWPvecuXA)
 - [Gintama | Funny Moments - Only Children Play in the Snow](https://www.youtube.com/watch?v=lk3sVHPjzwM)
-- [Gintama | Funny Moments - Keep an Eye on the Chief for the Day](https://www.youtube.com/watch?v=1sQpAtJS6iE)
-- [Gintama | Funny Moments - Shinpachi quits the Yorozuya and goes to try and bring Kagura back](https://www.youtube.com/watch?v=p18HcqnOIQI)
-- [Gintama | Funny Moments - Love Doesn&#39;t Require a Manual](https://www.youtube.com/watch?v=OF_bJiq1LW4)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
