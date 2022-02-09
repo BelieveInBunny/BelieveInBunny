@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama | Funny Moments - Only Children Play in the Snow](https://www.youtube.com/watch?v=lk3sVHPjzwM)
 - [Gintama | Funny Moments - Keep an Eye on the Chief for the Day](https://www.youtube.com/watch?v=1sQpAtJS6iE)
 - [Gintama | Funny Moments - Shinpachi quits the Yorozuya and goes to try and bring Kagura back](https://www.youtube.com/watch?v=p18HcqnOIQI)
 - [Gintama | Funny Moments - Love Doesn&#39;t Require a Manual](https://www.youtube.com/watch?v=OF_bJiq1LW4)
 - [Gintama | Funny Moments - Sadaharu Gets Serious](https://www.youtube.com/watch?v=9iJiA7WIqRs)
-- [Gintama | Funny Moments - Pets Resemble Their Owners ~ Earn Rent From Your Pet](https://www.youtube.com/watch?v=sij5hlDuj28)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
