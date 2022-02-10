@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Beatless | Episode 5 - Lacia Protects Arato Again](https://www.youtube.com/watch?v=Pqy78oGBtx0)
 - [Code Geass | Shirley bleeding to death ~ Assassin from the Past](https://www.youtube.com/watch?v=HVwZ7nqihRU)
 - [Code Geass | Shirley Kisses Lelouch - The Messenger from Kyoto](https://www.youtube.com/watch?v=q8vFzhJN0HE)
 - [Episode:01 | Evangelion](https://www.youtube.com/watch?v=TEGyhSntW8A)
 - [Gintama | Funny Moments - The Heavenly Kings are reunited to fight against the Harusame and Utsuro](https://www.youtube.com/watch?v=Bojk1svDZwc)
-- [Code Geass | The Taste of Humiliation ~ Final Battle Tokyo](https://www.youtube.com/watch?v=q5HnPoSu81U)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
