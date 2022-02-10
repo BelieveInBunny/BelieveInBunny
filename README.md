@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Code Geass | The Taste of Humiliation ~ Final Battle Tokyo](https://www.youtube.com/watch?v=q5HnPoSu81U)
+- [Abel And Helena Reunite | English Dubbed - Fena: Pirate Princess](https://www.youtube.com/watch?v=SFONywCkTHE)
 - [Gintama | Funny Moments - Substance over appearance ~ Nmaibo is surprisingly filling](https://www.youtube.com/watch?v=r8YT9coz_BU)
 - [1 Breath Challenge - Snowman For AMV](https://www.youtube.com/watch?v=Gow-giJ0lLY)
 - [GOBLIN SLAYER Season 2   Official Teaser](https://www.youtube.com/watch?v=PwjDY8I-284)
-- [【FGO】CM集 第1部〜第2部【Fate Grand Order】](https://www.youtube.com/watch?v=gMSUi6o7BY4)
-- [The Quintessential Quintuplets Movie   Official Teaser Trailer](https://www.youtube.com/watch?v=el11W14OlRs)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
