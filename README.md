@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Gintama | Funny Moments - The Heavenly Kings are reunited to fight against the Harusame and Utsuro](https://www.youtube.com/watch?v=Bojk1svDZwc)
 - [Code Geass | The Taste of Humiliation ~ Final Battle Tokyo](https://www.youtube.com/watch?v=q5HnPoSu81U)
 - [Abel And Helena Reunite | English Dubbed - Fena: Pirate Princess](https://www.youtube.com/watch?v=SFONywCkTHE)
 - [Gintama | Funny Moments - Substance over appearance ~ Nmaibo is surprisingly filling](https://www.youtube.com/watch?v=r8YT9coz_BU)
 - [1 Breath Challenge - Snowman For AMV](https://www.youtube.com/watch?v=Gow-giJ0lLY)
-- [GOBLIN SLAYER Season 2   Official Teaser](https://www.youtube.com/watch?v=PwjDY8I-284)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
