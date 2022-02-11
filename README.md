@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto | Best Fight Moments - Who is strongest ~ Strongest Naruto Characters #03](https://www.youtube.com/watch?v=BpOFwcmVJ_o)
 - [Naruto | Best Fight Moments - Who is strongest ~ Strongest Naruto Characters #02](https://www.youtube.com/watch?v=ozg1h-3QCh0)
 - [Naruto | Best Fight Moments - Jiraiya #01](https://www.youtube.com/watch?v=WPMD0uwrwTE)
 - [Code Geass | Love Attack!](https://www.youtube.com/watch?v=eSAhsP6Ha0o)
 - [Afro Samurai II: Resurrection | English Dubbed - Anime Full Screen](https://www.youtube.com/watch?v=eF3B7s-zK_Y)
-- [Beatless | Episode 5 - Lacia Protects Arato Again](https://www.youtube.com/watch?v=Pqy78oGBtx0)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
