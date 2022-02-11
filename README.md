@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto | Best Fight Moments - Jiraiya #01](https://www.youtube.com/watch?v=WPMD0uwrwTE)
 - [Code Geass | Love Attack!](https://www.youtube.com/watch?v=eSAhsP6Ha0o)
 - [Afro Samurai II: Resurrection | English Dubbed - Anime Full Screen](https://www.youtube.com/watch?v=eF3B7s-zK_Y)
 - [Beatless | Episode 5 - Lacia Protects Arato Again](https://www.youtube.com/watch?v=Pqy78oGBtx0)
 - [Code Geass | Shirley bleeding to death ~ Assassin from the Past](https://www.youtube.com/watch?v=HVwZ7nqihRU)
-- [Code Geass | Shirley Kisses Lelouch - The Messenger from Kyoto](https://www.youtube.com/watch?v=q8vFzhJN0HE)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
