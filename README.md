@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto | Best Fight Moments - Hidan and Kakuzu VS Team 10 and Team 7 #10](https://www.youtube.com/watch?v=ygboM98Q0wU)
 - [Best Moment Funny Gintama #1│Humorous plan to destroy Edo](https://www.youtube.com/watch?v=LSsvoqlzdCM)
 - [Naruto | Best Fight Moments - Jugo #09](https://www.youtube.com/watch?v=snQuNQtl1uc)
 - [Naruto | Best Fight Moments - Kakashi Chronicles ~ Boys&#39; Life on the Battlefield #08](https://www.youtube.com/watch?v=VLVvo2CqdQo)
 - [Naruto | Best Fight Moments - Entrusted Wishes! ~ Kazekage Rescue Mission #07](https://www.youtube.com/watch?v=tJgRJZD-5TE)
-- [Naruto | Best Fight Moments - Kakashi vs Itachi! ~ Kazekage Rescue Mission #06](https://www.youtube.com/watch?v=6xo5feBMSrs)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
