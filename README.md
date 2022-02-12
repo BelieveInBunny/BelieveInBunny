@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto | Best Fight Moments - Kakashi vs Itachi! ~ Kazekage Rescue Mission #06](https://www.youtube.com/watch?v=6xo5feBMSrs)
 - [Naruto | Best Fight Moments - The legendary battles in Naruto #05](https://www.youtube.com/watch?v=uuRvNCB_cv8)
 - [Naruto | Best Fight Moments - The legendary battles in Naruto #04](https://www.youtube.com/watch?v=1E_KhOsRSQM)
 - [Naruto | Best Fight Moments - Who is strongest ~ Strongest Naruto Characters #03](https://www.youtube.com/watch?v=BpOFwcmVJ_o)
 - [Naruto | Best Fight Moments - Who is strongest ~ Strongest Naruto Characters #02](https://www.youtube.com/watch?v=ozg1h-3QCh0)
-- [Naruto | Best Fight Moments - Jiraiya #01](https://www.youtube.com/watch?v=WPMD0uwrwTE)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
