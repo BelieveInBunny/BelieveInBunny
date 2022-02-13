@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Vanitas no Carte | 60 Seconds Of Vanitas Name](https://www.youtube.com/watch?v=rNE36ulHchU)
 - [Naruto | Best Fight Moments - Sasuke Kills Orochimaru And Absorve His Powers #14](https://www.youtube.com/watch?v=Jq56qHY1p_Q)
 - [Naruto | Best Fight Moments - Tenchi Bridge Reconnaissance Mission #13](https://www.youtube.com/watch?v=36T7Uwix5ug)
 - [Super Crooks - Bar Fight | English Dubbed](https://www.youtube.com/watch?v=XVo8Ey3UqYo)
 - [Naruto | Best Fight Moments - Hidan and Kakuzu VS Team 10 and Team 7 #12](https://www.youtube.com/watch?v=jofXfmcRW9A)
-- [Naruto | Jiraiya vs Pain ~ The Saddest Death in Anime History #11](https://www.youtube.com/watch?v=GoUqcpqbf3U)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
