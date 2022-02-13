@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto | Best Fight Moments - Tenchi Bridge Reconnaissance Mission #13](https://www.youtube.com/watch?v=36T7Uwix5ug)
 - [Super Crooks - Bar Fight | English Dubbed](https://www.youtube.com/watch?v=XVo8Ey3UqYo)
 - [Naruto | Best Fight Moments - Hidan and Kakuzu VS Team 10 and Team 7 #12](https://www.youtube.com/watch?v=jofXfmcRW9A)
 - [Naruto | Jiraiya vs Pain ~ The Saddest Death in Anime History #11](https://www.youtube.com/watch?v=GoUqcpqbf3U)
 - [Anime Funny Moments | Barakamon](https://www.youtube.com/watch?v=su8hLIImOCg)
-- [Naruto | Best Fight Moments - Hidan and Kakuzu VS Team 10 and Team 7 #10](https://www.youtube.com/watch?v=ygboM98Q0wU)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
