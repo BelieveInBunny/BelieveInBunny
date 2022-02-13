@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Naruto | Best Fight Moments - Hidan and Kakuzu VS Team 10 and Team 7 #12](https://www.youtube.com/watch?v=jofXfmcRW9A)
 - [Naruto | Jiraiya vs Pain ~ The Saddest Death in Anime History #11](https://www.youtube.com/watch?v=GoUqcpqbf3U)
 - [Anime Funny Moments | Barakamon](https://www.youtube.com/watch?v=su8hLIImOCg)
 - [Naruto | Best Fight Moments - Hidan and Kakuzu VS Team 10 and Team 7 #10](https://www.youtube.com/watch?v=ygboM98Q0wU)
 - [Best Moment Funny Gintama #1│Humorous plan to destroy Edo](https://www.youtube.com/watch?v=LSsvoqlzdCM)
-- [Naruto | Best Fight Moments - Jugo #09](https://www.youtube.com/watch?v=snQuNQtl1uc)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
