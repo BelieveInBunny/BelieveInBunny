@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Anime Funny Moments | Asobi Asobase - Part#1](https://www.youtube.com/watch?v=UdTGXyPMEzs)
 - [Assassination Classroom - Funny Moments - Part#3](https://www.youtube.com/watch?v=HcAw6Ay1RT8)
 - [August Ruthven | Mochizuki Jun](https://www.youtube.com/watch?v=Suo4HNWyQXU)
 - [Aum Aum Haauumm](https://www.youtube.com/watch?v=Q5PbQsGKRnE)
 - [Bad@ss](https://www.youtube.com/watch?v=pmjIdKvBWIU)
-- [A Place Further Than The Universe | Funny Moments - Part#1](https://www.youtube.com/watch?v=Ckhe1z_96ZE)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
