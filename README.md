@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Aum Aum Haauumm](https://www.youtube.com/watch?v=Q5PbQsGKRnE)
 - [Bad@ss](https://www.youtube.com/watch?v=pmjIdKvBWIU)
 - [A Place Further Than The Universe | Funny Moments - Part#1](https://www.youtube.com/watch?v=Ckhe1z_96ZE)
 - [A Bath, Dnner or  .....](https://www.youtube.com/watch?v=2m1tJKhYYck)
 - [Vanitas no Carte | 60 Seconds Of Vanitas Name](https://www.youtube.com/watch?v=rNE36ulHchU)
-- [Naruto | Best Fight Moments - Sasuke Kills Orochimaru And Absorve His Powers #14](https://www.youtube.com/watch?v=Jq56qHY1p_Q)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
