@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Amagi Brilliant Park | Sento Asks Kanie for a Date](https://www.youtube.com/watch?v=OORL3ynwv60)
 - [Yoshi Her Airhead Moments &lpar;Ijiranaide, Nagatoro-san&rpar;](https://www.youtube.com/watch?v=GTyjsrAcHwk)
 - [Alice Past](https://www.youtube.com/watch?v=VnVCP-cecfk)
 - [Miss Kobayashi&#39;s Dragon Maids | Arm Wrestling Competition](https://www.youtube.com/watch?v=l0BglbLqIEo)
 - [Anime Funny Moments | Asobi Asobase - Part#1](https://www.youtube.com/watch?v=UdTGXyPMEzs)
-- [Assassination Classroom - Funny Moments - Part#3](https://www.youtube.com/watch?v=HcAw6Ay1RT8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
