@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Miss Kobayashi&#39;s Dragon Maids | Arm Wrestling Competition](https://www.youtube.com/watch?v=l0BglbLqIEo)
 - [Anime Funny Moments | Asobi Asobase - Part#1](https://www.youtube.com/watch?v=UdTGXyPMEzs)
 - [Assassination Classroom - Funny Moments - Part#3](https://www.youtube.com/watch?v=HcAw6Ay1RT8)
 - [August Ruthven | Mochizuki Jun](https://www.youtube.com/watch?v=Suo4HNWyQXU)
 - [Aum Aum Haauumm](https://www.youtube.com/watch?v=Q5PbQsGKRnE)
-- [Bad@ss](https://www.youtube.com/watch?v=pmjIdKvBWIU)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
