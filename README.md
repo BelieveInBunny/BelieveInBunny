@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Best Moment Funny Gintama #3│Shinsengumi looking for opponents](https://www.youtube.com/watch?v=wGYuipqiZUs)
+- [Best Moment Funny Gintama #2│Gintoki + Kagura encounter a specially wanted criminal](https://www.youtube.com/watch?v=jZuMxCWws44)
 - [Arifureta | Anime Funny Moments](https://www.youtube.com/watch?v=lpvRh4FR7Y8)
 - [Miss Kobayashi&#39;s Dragon Maid&#39;s | Amusement Park Date - English Dubbed](https://www.youtube.com/watch?v=bHjtztbq1FY)
 - [Violet Evergarden: The Movie | Ann&#39;s Letters - English Dubbed](https://www.youtube.com/watch?v=CbZLiEF3meg)
-- [Angel Beats | Anime Funny Moments - Part#1](https://www.youtube.com/watch?v=Th-0Ihkdbjw)
-- [Amagi Brilliant Park | Sento Asks Kanie for a Date](https://www.youtube.com/watch?v=OORL3ynwv60)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
