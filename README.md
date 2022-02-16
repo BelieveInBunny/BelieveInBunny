@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Miss Kobayashi&#39;s Dragon Maid&#39;s | Amusement Park Date - English Dubbed](https://www.youtube.com/watch?v=bHjtztbq1FY)
 - [Violet Evergarden: The Movie | Ann&#39;s Letters - English Dubbed](https://www.youtube.com/watch?v=CbZLiEF3meg)
 - [Angel Beats | Anime Funny Moments - Part#1](https://www.youtube.com/watch?v=Th-0Ihkdbjw)
 - [Amagi Brilliant Park | Sento Asks Kanie for a Date](https://www.youtube.com/watch?v=OORL3ynwv60)
 - [Yoshi Her Airhead Moments &lpar;Ijiranaide, Nagatoro-san&rpar;](https://www.youtube.com/watch?v=GTyjsrAcHwk)
-- [Alice Past](https://www.youtube.com/watch?v=VnVCP-cecfk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
