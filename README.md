@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Best Moment Funny Gintama #4│Otate&#39;s Memories](https://www.youtube.com/watch?v=Jbw7aQ1tO8c)
 - [bojji 🥺](https://www.youtube.com/watch?v=d4QunA-k1ow)
 - [Blush and H0rny](https://www.youtube.com/watch?v=KgfazUqJatQ)
 - [Best Moment Funny Gintama #3│Shinsengumi looking for opponents](https://www.youtube.com/watch?v=wGYuipqiZUs)
 - [Best Moment Funny Gintama #2│Gintoki + Kagura encounter a specially wanted criminal](https://www.youtube.com/watch?v=jZuMxCWws44)
-- [Arifureta | Anime Funny Moments](https://www.youtube.com/watch?v=lpvRh4FR7Y8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
