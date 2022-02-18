@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [cute domi](https://www.youtube.com/watch?v=kN1mtw9BS8U)
+- [Best Moment Funny Gintama #5│Gintoki&#39;s Terrible Nightmare](https://www.youtube.com/watch?v=8Zo_UuAnCrE)
+- [Best Moment Funny Gintama S2 #5│swimming pool](https://www.youtube.com/watch?v=APZVFNEKj10)
+- [Best Moment Funny Gintama S2 #4│Jirocho and Gin fight the elite Harusame force](https://www.youtube.com/watch?v=R4fVJfJ-lMQ)
 - [Best Moment Funny Gintama #4│Otate&#39;s Memories](https://www.youtube.com/watch?v=Jbw7aQ1tO8c)
-- [bojji 🥺](https://www.youtube.com/watch?v=d4QunA-k1ow)
-- [Blush and H0rny](https://www.youtube.com/watch?v=KgfazUqJatQ)
-- [Best Moment Funny Gintama #3│Shinsengumi looking for opponents](https://www.youtube.com/watch?v=wGYuipqiZUs)
-- [Best Moment Funny Gintama #2│Gintoki + Kagura encounter a specially wanted criminal](https://www.youtube.com/watch?v=jZuMxCWws44)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
