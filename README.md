@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Best Moment Funny Gintama S2 #8│Prison riots](https://www.youtube.com/watch?v=5KyF_bWiVw4)
+- [Boji And Queen Hiling&#39;s Relationship &lpar;Ranking Of Kings&rpar; | English Dubbed](https://www.youtube.com/watch?v=LP9gs0ZmVuk)
+- [Yuzu Tries to Kiss Mei](https://www.youtube.com/watch?v=brSHL2V85Gw)
 - [Best Moment Funny Gintama S2 #7│Mysterious female ghost](https://www.youtube.com/watch?v=orcpOYZ0vJk)
 - [Best Moment Funny Gintama S2 #6│The story about the monkey Jugem](https://www.youtube.com/watch?v=6o2rvIh_YAo)
-- [Best Moment Funny Gintama S2 #3│Humorous struggle for power at Kabuki](https://www.youtube.com/watch?v=G17f3uMhjnI)
-- [Best Moment Funny Gintama S2 #2│The battle to protect Sa chan against the Punishers](https://www.youtube.com/watch?v=_jbwCT85xII)
-- [Best Moment Funny Gintama S2 #1│Alien Invasion](https://www.youtube.com/watch?v=XujiD5zNPjE)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
