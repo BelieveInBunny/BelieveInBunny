@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Best Moment Funny Gintama S2 #6│The story about the monkey Jugem](https://www.youtube.com/watch?v=6o2rvIh_YAo)
 - [Best Moment Funny Gintama S2 #3│Humorous struggle for power at Kabuki](https://www.youtube.com/watch?v=G17f3uMhjnI)
 - [Best Moment Funny Gintama S2 #2│The battle to protect Sa chan against the Punishers](https://www.youtube.com/watch?v=_jbwCT85xII)
 - [Best Moment Funny Gintama S2 #1│Alien Invasion](https://www.youtube.com/watch?v=XujiD5zNPjE)
 - [cute domi](https://www.youtube.com/watch?v=kN1mtw9BS8U)
-- [Best Moment Funny Gintama #5│Gintoki&#39;s Terrible Nightmare](https://www.youtube.com/watch?v=8Zo_UuAnCrE)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
