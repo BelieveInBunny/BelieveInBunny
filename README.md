@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Best Moment Funny Gintama S2 #11│Battle to bring peace to the universe](https://www.youtube.com/watch?v=fbhZn_yltGQ)
 - [Best Moment Funny Gintama S2 #10│Elizabeth&#39;s mysterious disappearance](https://www.youtube.com/watch?v=lCnpoBlMg5U)
 - [Best Moment Funny Gintama S2 #9│Gintoki and Shinpachi challenge to a duel](https://www.youtube.com/watch?v=ghukQ21aPu4)
 - [Best Moment Funny Gintama S2 #8│Prison riots](https://www.youtube.com/watch?v=5KyF_bWiVw4)
 - [Boji And Queen Hiling&#39;s Relationship &lpar;Ranking Of Kings&rpar; | English Dubbed](https://www.youtube.com/watch?v=LP9gs0ZmVuk)
-- [Yuzu Tries to Kiss Mei](https://www.youtube.com/watch?v=brSHL2V85Gw)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
