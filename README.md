@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [drinks](https://www.youtube.com/watch?v=APFj4khMAdE)
+- [Elias is Lonely | Mahoutsukai no Yome ~ Episode 13](https://www.youtube.com/watch?v=lHc8m-gl2TU)
 - [Boji&#39;s Terrible Cooking &lpar;Ranking Of Kings&rpar; | English Dubbed](https://www.youtube.com/watch?v=1oErManFWuo)
 - [Best Moment Funny Gintama S2 #12│Attempts to find Shogun after mysterious disappearance](https://www.youtube.com/watch?v=HzS373PwNAU)
 - [Best Moment Funny Gintama S2 #11│Battle to bring peace to the universe](https://www.youtube.com/watch?v=fbhZn_yltGQ)
-- [Best Moment Funny Gintama S2 #10│Elizabeth&#39;s mysterious disappearance](https://www.youtube.com/watch?v=lCnpoBlMg5U)
-- [Best Moment Funny Gintama S2 #9│Gintoki and Shinpachi challenge to a duel](https://www.youtube.com/watch?v=ghukQ21aPu4)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
