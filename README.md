@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [&#39;Persuading Tohka&#39; is a Success](https://www.youtube.com/watch?v=-jtrNXFOcFY)
+- [Cute Staring Contest](https://www.youtube.com/watch?v=8nLPmpnaKhU)
+- [domi and dante being a stalker](https://www.youtube.com/watch?v=Hw1ynRaaoQU)
 - [Mei&#39;s Dad Approved Yuri Relationship](https://www.youtube.com/watch?v=T1aLU2NnJYA)
 - [Best Moment Funny Gintama° #4│A journey to wreak havoc on the members of the cult](https://www.youtube.com/watch?v=fX48SGSZyjI)
-- [Domas Pushes Boji Into The Gates Of Hell | English Dubbed](https://www.youtube.com/watch?v=6KCX0x0aL2E)
-- [Best Moment Funny Gintama° #3│Stupid troubles with Hijikata](https://www.youtube.com/watch?v=br-lHlTIbWE)
-- [Best Moment Funny Gintama° #2│The hunt for Kurokono from silly clues](https://www.youtube.com/watch?v=kh-znJGxr6s)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
