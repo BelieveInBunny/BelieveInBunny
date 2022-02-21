@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Best Moment Funny Gintama° #4│A journey to wreak havoc on the members of the cult](https://www.youtube.com/watch?v=fX48SGSZyjI)
 - [Domas Pushes Boji Into The Gates Of Hell | English Dubbed](https://www.youtube.com/watch?v=6KCX0x0aL2E)
 - [Best Moment Funny Gintama° #3│Stupid troubles with Hijikata](https://www.youtube.com/watch?v=br-lHlTIbWE)
 - [Best Moment Funny Gintama° #2│The hunt for Kurokono from silly clues](https://www.youtube.com/watch?v=kh-znJGxr6s)
 - [Best Moment Funny Gintama S2 #17│Gintoki&#39;s frenzied anger](https://www.youtube.com/watch?v=WTaTc-W9SyY)
-- [Best Moment Funny Gintama° #1│Surprise comes from corpses](https://www.youtube.com/watch?v=MGlZ3hiMVmw)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
