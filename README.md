@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Best Moment Funny Gintama S2 #15│Shinsengumi returns to fighting all out war](https://www.youtube.com/watch?v=b3vtV85ud5s)
 - [Best Moment Funny Gintama S2 #14│Honda seeks to rescue itself](https://www.youtube.com/watch?v=7-Zr6NiQlMY)
 - [Captain Connor | English Dubbed - Edens Zero](https://www.youtube.com/watch?v=QuUx1u5Jwck)
 - [Best Moment Funny Gintama S2 #13│Bad things happen to Madame Yagami](https://www.youtube.com/watch?v=90gsrf29sgY)
 - [drinks](https://www.youtube.com/watch?v=APFj4khMAdE)
-- [Elias is Lonely | Mahoutsukai no Yome ~ Episode 13](https://www.youtube.com/watch?v=lHc8m-gl2TU)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
