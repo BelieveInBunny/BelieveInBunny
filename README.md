@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Best Moment Funny Gintama° #3│Stupid troubles with Hijikata](https://www.youtube.com/watch?v=br-lHlTIbWE)
 - [Best Moment Funny Gintama° #2│The hunt for Kurokono from silly clues](https://www.youtube.com/watch?v=kh-znJGxr6s)
 - [Best Moment Funny Gintama S2 #17│Gintoki&#39;s frenzied anger](https://www.youtube.com/watch?v=WTaTc-W9SyY)
 - [Best Moment Funny Gintama° #1│Surprise comes from corpses](https://www.youtube.com/watch?v=MGlZ3hiMVmw)
 - [Best Moment Funny Gintama S2 #16│Special Christmas Eve](https://www.youtube.com/watch?v=Ahzor50x9xQ)
-- [Best Moment Funny Gintama S2 #15│Shinsengumi returns to fighting all out war](https://www.youtube.com/watch?v=b3vtV85ud5s)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
