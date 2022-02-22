@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Lancer Works as A Part Timer](https://www.youtube.com/watch?v=SLvJ8vWIR5U)
 - [Best Moment Funny Gintama° #9│The humor of stupid pirates](https://www.youtube.com/watch?v=Ahpvffei3rU)
 - [Best Moment Funny Gintama° #8│Gintoki is in danger from delinquents](https://www.youtube.com/watch?v=OZptpOth1L4)
 - [Best Moment Funny Gintama° #7│Kondo&#39;s chance meeting with Otae](https://www.youtube.com/watch?v=Mz051J4jZzg)
 - [Best Moment Funny Gintama° #6│Yaemon&#39;s murder plot is stopped](https://www.youtube.com/watch?v=L2l9PQZXC9A)
-- [Best Moment Funny Gintama° #5│Gintoki gets caught up in Yaemon&#39;s gang](https://www.youtube.com/watch?v=avH_2lZmKnc)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
