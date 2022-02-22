@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Best Moment Funny Gintama° #7│Kondo&#39;s chance meeting with Otae](https://www.youtube.com/watch?v=Mz051J4jZzg)
 - [Best Moment Funny Gintama° #6│Yaemon&#39;s murder plot is stopped](https://www.youtube.com/watch?v=L2l9PQZXC9A)
 - [Best Moment Funny Gintama° #5│Gintoki gets caught up in Yaemon&#39;s gang](https://www.youtube.com/watch?v=avH_2lZmKnc)
 - [&#39;Persuading Tohka&#39; is a Success](https://www.youtube.com/watch?v=-jtrNXFOcFY)
 - [Cute Staring Contest](https://www.youtube.com/watch?v=8nLPmpnaKhU)
-- [domi and dante being a stalker](https://www.youtube.com/watch?v=Hw1ynRaaoQU)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
