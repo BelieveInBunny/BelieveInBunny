@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Klee &amp; Kao-chan!!](https://www.youtube.com/watch?v=ZbU-F6hiMIo)
 - [Best Moment Funny Gintama° #15│Katsura is determined to defeat Nobunobu](https://www.youtube.com/watch?v=lKU72xUxqQE)
 - [Best Moment Funny Gintama° #13│The bloody battle continues](https://www.youtube.com/watch?v=SI2ahgEo930)
 - [Best Moment Funny Gintama° #14│Bloody war is over, Nobunobu becomes the new shogun of Edo](https://www.youtube.com/watch?v=xseUG7PbzP0)
 - [Best Moment Funny Gintama° #16│Rescue operation to rescue Katsura and Kondo](https://www.youtube.com/watch?v=3LaoV9KANfM)
-- [Daida VS Domas](https://www.youtube.com/watch?v=P4-e9hGCKYc)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
