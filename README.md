@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Best Moment Funny Gintama° #13│The bloody battle continues](https://www.youtube.com/watch?v=SI2ahgEo930)
 - [Best Moment Funny Gintama° #14│Bloody war is over, Nobunobu becomes the new shogun of Edo](https://www.youtube.com/watch?v=xseUG7PbzP0)
 - [Best Moment Funny Gintama° #16│Rescue operation to rescue Katsura and Kondo](https://www.youtube.com/watch?v=3LaoV9KANfM)
 - [Daida VS Domas](https://www.youtube.com/watch?v=P4-e9hGCKYc)
 - [Best Moment Funny Gintama° #12│Death battle](https://www.youtube.com/watch?v=SES7vBYcLG8)
-- [Best Moment Funny Gintama° #10│Looking back at Kondo&#39;s tragic past](https://www.youtube.com/watch?v=KBxZJqWG7QU)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
