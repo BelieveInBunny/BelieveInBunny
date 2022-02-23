@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Elinalise Gets Gangbanged | English Dubbed](https://www.youtube.com/watch?v=4kB4FkJ4KDQ)
+- [koi](https://www.youtube.com/watch?v=XomY3CPUwXk)
 - [Best Moment Funny Gintama° #17│Utsuro appeared to defeat the rebels](https://www.youtube.com/watch?v=u-pHtsinFKo)
 - [Klee &amp; Kao-chan!!](https://www.youtube.com/watch?v=ZbU-F6hiMIo)
 - [Best Moment Funny Gintama° #15│Katsura is determined to defeat Nobunobu](https://www.youtube.com/watch?v=lKU72xUxqQE)
-- [Best Moment Funny Gintama° #13│The bloody battle continues](https://www.youtube.com/watch?v=SI2ahgEo930)
-- [Best Moment Funny Gintama° #14│Bloody war is over, Nobunobu becomes the new shogun of Edo](https://www.youtube.com/watch?v=xseUG7PbzP0)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
