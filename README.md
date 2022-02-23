@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Daida VS Domas](https://www.youtube.com/watch?v=P4-e9hGCKYc)
 - [Best Moment Funny Gintama° #12│Death battle](https://www.youtube.com/watch?v=SES7vBYcLG8)
 - [Best Moment Funny Gintama° #10│Looking back at Kondo&#39;s tragic past](https://www.youtube.com/watch?v=KBxZJqWG7QU)
 - [Schwartz von Liechtenstein Lohengramm ~ Fantasy Bishoujo Juniku Ojisan to Episode 4](https://www.youtube.com/watch?v=rYlsjDwo8gI)
 - [No one can refuse kao-chan!!](https://www.youtube.com/watch?v=cENl6rh0Pfg)
-- [Onee-Chan Butt Slap ~ Akebi&#39;s Sailor Uniform](https://www.youtube.com/watch?v=kCTjIXFzpLk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
