@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Let&#39;s try cooking](https://www.youtube.com/watch?v=acoRsiUzWTA)
+- [Effect of Ramen | Ramen Daisuki Koizumi san ~ Episode 1](https://www.youtube.com/watch?v=719Q8d_i6LQ)
 - [Only one word .... Beautiful](https://www.youtube.com/watch?v=-eNtyn15Kto)
 - [Effect of Spicy Ramen | Ramen Daisuki Koizumi san ~ Episode 2](https://www.youtube.com/watch?v=MB-7yPrWFNU)
 - [I might be a pervert](https://www.youtube.com/watch?v=EDFL9DPCmmg)
-- [ElectroBoy Kills Everyone](https://www.youtube.com/watch?v=s9-HlYPaL2Q)
-- [Do you mind if I lift your skirt? ~ love 🧡](https://www.youtube.com/watch?v=3OTJblMPQYo)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
