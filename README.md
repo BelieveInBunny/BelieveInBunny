@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Seat Number 14, Hiraiwa Hotaru-san!](https://www.youtube.com/watch?v=lmvnZitAStc)
 - [I&#39;m stuck](https://www.youtube.com/watch?v=sWRSW2RcHho)
 - [Let&#39;s try cooking](https://www.youtube.com/watch?v=acoRsiUzWTA)
 - [Effect of Ramen | Ramen Daisuki Koizumi san ~ Episode 1](https://www.youtube.com/watch?v=719Q8d_i6LQ)
 - [Only one word .... Beautiful](https://www.youtube.com/watch?v=-eNtyn15Kto)
-- [Effect of Spicy Ramen | Ramen Daisuki Koizumi san ~ Episode 2](https://www.youtube.com/watch?v=MB-7yPrWFNU)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
