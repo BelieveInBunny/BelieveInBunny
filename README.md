@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=pqzgwpDqK78)
+- [New Yuri Partner is Here 🧡](https://www.youtube.com/watch?v=_BsB6Z9nIZY)
 - [Always be honest](https://www.youtube.com/watch?v=5BnWPWqABQE)
 - [Seat Number 14, Hiraiwa Hotaru-san!](https://www.youtube.com/watch?v=lmvnZitAStc)
 - [I&#39;m stuck](https://www.youtube.com/watch?v=sWRSW2RcHho)
-- [Let&#39;s try cooking](https://www.youtube.com/watch?v=acoRsiUzWTA)
-- [Effect of Ramen | Ramen Daisuki Koizumi san ~ Episode 1](https://www.youtube.com/watch?v=719Q8d_i6LQ)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
