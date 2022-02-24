@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Only one word .... Beautiful](https://www.youtube.com/watch?v=-eNtyn15Kto)
+- [Effect of Spicy Ramen | Ramen Daisuki Koizumi san ~ Episode 2](https://www.youtube.com/watch?v=MB-7yPrWFNU)
 - [I might be a pervert](https://www.youtube.com/watch?v=EDFL9DPCmmg)
 - [ElectroBoy Kills Everyone](https://www.youtube.com/watch?v=s9-HlYPaL2Q)
 - [Do you mind if I lift your skirt? ~ love 🧡](https://www.youtube.com/watch?v=3OTJblMPQYo)
-- [Elinalise Gets Gangbanged | English Dubbed](https://www.youtube.com/watch?v=4kB4FkJ4KDQ)
-- [koi](https://www.youtube.com/watch?v=XomY3CPUwXk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
