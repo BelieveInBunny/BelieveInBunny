@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [ElectroBoy Kills Everyone](https://www.youtube.com/watch?v=s9-HlYPaL2Q)
 - [Do you mind if I lift your skirt? ~ love 🧡](https://www.youtube.com/watch?v=3OTJblMPQYo)
 - [Elinalise Gets Gangbanged | English Dubbed](https://www.youtube.com/watch?v=4kB4FkJ4KDQ)
 - [koi](https://www.youtube.com/watch?v=XomY3CPUwXk)
 - [Best Moment Funny Gintama° #17│Utsuro appeared to defeat the rebels](https://www.youtube.com/watch?v=u-pHtsinFKo)
-- [Klee &amp; Kao-chan!!](https://www.youtube.com/watch?v=ZbU-F6hiMIo)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
