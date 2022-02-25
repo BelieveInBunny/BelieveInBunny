@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [More Harem Member ~~ Lulu &amp; Arisa](https://www.youtube.com/watch?v=VhS8ipAIdPE)
 - [Kotori is Scared of OniiChan](https://www.youtube.com/watch?v=zeoFWtXAS-w)
 - [Weird Noises by Miku](https://www.youtube.com/watch?v=jPmQR2sH_rk)
 - [002 Licked Hiro &amp; Ichigo](https://www.youtube.com/watch?v=izK83B_SkeE)
 - [『Nightcore』Way Back Home ❲Female Version❳](https://www.youtube.com/watch?v=_bBCyFB85Rg)
-- [Daily Lives of Highschool Boys - Funny Moments - Part#3](https://www.youtube.com/watch?v=9_gZVNnCkYU)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
