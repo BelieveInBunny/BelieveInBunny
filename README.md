@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Onee chan! Focus!](https://www.youtube.com/watch?v=swdaYLedNaw)
 - [Marry me, please!](https://www.youtube.com/watch?v=xX5Acqg6TWw)
 - [Death Of Kyosuke Higuchi](https://www.youtube.com/watch?v=FmgrMO3AiKA)
 - [Satou &amp; Zena Reunion](https://www.youtube.com/watch?v=aRAXGb0gNkw)
 - [Pochi is Cute When Panicking](https://www.youtube.com/watch?v=5SNpCgGdn7g)
-- [More Harem Member ~~ Lulu &amp; Arisa](https://www.youtube.com/watch?v=VhS8ipAIdPE)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
