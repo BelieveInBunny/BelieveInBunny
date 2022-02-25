@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Death Of Kyosuke Higuchi](https://www.youtube.com/watch?v=FmgrMO3AiKA)
 - [Satou &amp; Zena Reunion](https://www.youtube.com/watch?v=aRAXGb0gNkw)
 - [Pochi is Cute When Panicking](https://www.youtube.com/watch?v=5SNpCgGdn7g)
 - [More Harem Member ~~ Lulu &amp; Arisa](https://www.youtube.com/watch?v=VhS8ipAIdPE)
 - [Kotori is Scared of OniiChan](https://www.youtube.com/watch?v=zeoFWtXAS-w)
-- [Weird Noises by Miku](https://www.youtube.com/watch?v=jPmQR2sH_rk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
