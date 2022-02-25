@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Funny Moments ~ The Case Study of Vanitas](https://www.youtube.com/watch?v=0oKUuvJuTlU)
 - [Onee chan! Focus!](https://www.youtube.com/watch?v=swdaYLedNaw)
 - [Marry me, please!](https://www.youtube.com/watch?v=xX5Acqg6TWw)
 - [Death Of Kyosuke Higuchi](https://www.youtube.com/watch?v=FmgrMO3AiKA)
 - [Satou &amp; Zena Reunion](https://www.youtube.com/watch?v=aRAXGb0gNkw)
-- [Pochi is Cute When Panicking](https://www.youtube.com/watch?v=5SNpCgGdn7g)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
