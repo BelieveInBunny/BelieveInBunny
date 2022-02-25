@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Kotori is Scared of OniiChan](https://www.youtube.com/watch?v=zeoFWtXAS-w)
 - [Weird Noises by Miku](https://www.youtube.com/watch?v=jPmQR2sH_rk)
 - [002 Licked Hiro &amp; Ichigo](https://www.youtube.com/watch?v=izK83B_SkeE)
 - [『Nightcore』Way Back Home ❲Female Version❳](https://www.youtube.com/watch?v=_bBCyFB85Rg)
 - [Daily Lives of Highschool Boys - Funny Moments - Part#3](https://www.youtube.com/watch?v=9_gZVNnCkYU)
-- [Daida&#39;s Nightmare](https://www.youtube.com/watch?v=645GYsYTYSg)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
