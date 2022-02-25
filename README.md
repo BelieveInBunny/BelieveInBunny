@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [002 Licked Hiro &amp; Ichigo](https://www.youtube.com/watch?v=izK83B_SkeE)
 - [『Nightcore』Way Back Home ❲Female Version❳](https://www.youtube.com/watch?v=_bBCyFB85Rg)
 - [Daily Lives of Highschool Boys - Funny Moments - Part#3](https://www.youtube.com/watch?v=9_gZVNnCkYU)
 - [Daida&#39;s Nightmare](https://www.youtube.com/watch?v=645GYsYTYSg)
 - [Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=pqzgwpDqK78)
-- [New Yuri Partner is Here 🧡](https://www.youtube.com/watch?v=_BsB6Z9nIZY)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
