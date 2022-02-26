@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Akagi and Ryoko&#39;s Cutest Moments ~ Tsurezure Children](https://www.youtube.com/watch?v=G89BWHa7lVE)
 - [ACNH - Animal Crossing](https://www.youtube.com/watch?v=mJ-Gxrf_wc0)
 - [10 Minutes of Sadism ~ Sakuranomiya Maika](https://www.youtube.com/watch?v=cjjTs1GEsGI)
 - [Sasuke VS Deidara ~ Itachi Pursuit Mission ~ Naruto Best Fight Moments](https://www.youtube.com/watch?v=DP10B-s7yY8)
 - [&quot;Take me away, my prince &quot; ~ Lugh Meets Maha, And Saves Her](https://www.youtube.com/watch?v=uGQDS85Rxhw)
-- [Monkey King | Jin Mori vs God Jegal Taek](https://www.youtube.com/watch?v=LIcQ0vxn2xQ)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
