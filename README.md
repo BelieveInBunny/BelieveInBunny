@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Sasuke VS Deidara ~ Itachi Pursuit Mission ~ Naruto Best Fight Moments](https://www.youtube.com/watch?v=DP10B-s7yY8)
 - [&quot;Take me away, my prince &quot; ~ Lugh Meets Maha, And Saves Her](https://www.youtube.com/watch?v=uGQDS85Rxhw)
 - [Monkey King | Jin Mori vs God Jegal Taek](https://www.youtube.com/watch?v=LIcQ0vxn2xQ)
 - [Akebi-chan Becomes a Stunning Model](https://www.youtube.com/watch?v=zeCbH4F-l0U)
 - [Akebi-chan&#39;s Stunning Beauty Poses](https://www.youtube.com/watch?v=Eob57cjnevg)
-- [Akebi-San special Talent](https://www.youtube.com/watch?v=XEKSSoPlnNU)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
