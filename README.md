@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Akebi-chan&#39;s Stunning Beauty Poses](https://www.youtube.com/watch?v=Eob57cjnevg)
 - [Akebi-San special Talent](https://www.youtube.com/watch?v=XEKSSoPlnNU)
 - [Seat Number 14, Hiraiwa Hotaru-san!!](https://www.youtube.com/watch?v=XxzBOGftHaE)
 - [Doki Doki situation](https://www.youtube.com/watch?v=bIo2-d68MNw)
 - [Funny Moments ~ The Case Study of Vanitas](https://www.youtube.com/watch?v=0oKUuvJuTlU)
-- [Onee chan! Focus!](https://www.youtube.com/watch?v=swdaYLedNaw)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
