@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Seat Number 14, Hiraiwa Hotaru-san!!](https://www.youtube.com/watch?v=XxzBOGftHaE)
 - [Doki Doki situation](https://www.youtube.com/watch?v=bIo2-d68MNw)
 - [Funny Moments ~ The Case Study of Vanitas](https://www.youtube.com/watch?v=0oKUuvJuTlU)
 - [Onee chan! Focus!](https://www.youtube.com/watch?v=swdaYLedNaw)
 - [Marry me, please!](https://www.youtube.com/watch?v=xX5Acqg6TWw)
-- [Death Of Kyosuke Higuchi](https://www.youtube.com/watch?v=FmgrMO3AiKA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
