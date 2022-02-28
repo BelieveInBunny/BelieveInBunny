@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Bojji First Time meeting Queen Hiling](https://www.youtube.com/watch?v=sZ-hk-9twck)
 - [Bojji Saved Gigan From King Desha](https://www.youtube.com/watch?v=QBR_c2a50eI)
 - [Bojji vs Ouken](https://www.youtube.com/watch?v=HjxjVeXHPyM)
 - [Bojji&#39;s Mother &amp; Miranjo&#39;s Death](https://www.youtube.com/watch?v=QrH54lLz4_c)
 - [Can you see anything](https://www.youtube.com/watch?v=t3TakkX3avo)
-- [Elma VS Tohru &lpar;Full Fight&rpar;](https://www.youtube.com/watch?v=x99WLwx60rM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
