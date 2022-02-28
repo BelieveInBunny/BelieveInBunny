@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [A Clothes Crisis ~~ Grand Blue](https://www.youtube.com/watch?v=wjrky28leNY)
 - [Akebi Adds Another to Her Harem](https://www.youtube.com/watch?v=Eicer0fQFSQ)
 - [Apeas trying to stop Bojji](https://www.youtube.com/watch?v=_32riw8FzWM)
 - [Bojji First Time meeting Queen Hiling](https://www.youtube.com/watch?v=sZ-hk-9twck)
 - [Bojji Saved Gigan From King Desha](https://www.youtube.com/watch?v=QBR_c2a50eI)
-- [Bojji vs Ouken](https://www.youtube.com/watch?v=HjxjVeXHPyM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
