@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [I&#39;m just working ~ My Dress Up Darling Episode 2](https://www.youtube.com/watch?v=8DmkHFolBT4)
 - [After all she&#39;s a Sliver witch](https://www.youtube.com/watch?v=6JLMvGBj60E)
 - [A Mischievous Goddess ~ Aqua Got Stoned By Her Followers](https://www.youtube.com/watch?v=YZl8UwjCKq0)
 - [A Clothes Crisis ~~ Grand Blue](https://www.youtube.com/watch?v=wjrky28leNY)
 - [Akebi Adds Another to Her Harem](https://www.youtube.com/watch?v=Eicer0fQFSQ)
-- [Apeas trying to stop Bojji](https://www.youtube.com/watch?v=_32riw8FzWM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
