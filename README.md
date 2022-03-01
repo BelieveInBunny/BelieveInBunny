@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Aqua Takes Over the Confession Room](https://www.youtube.com/watch?v=-DNmjfL_xLE)
+- [Chole Appearance | The Case Study of Vanitas](https://www.youtube.com/watch?v=_E9XmDhdUW8)
 - [Slow Loop Episode 2](https://www.youtube.com/watch?v=HiNOXx66jsI)
 - [I&#39;m just working ~ My Dress Up Darling Episode 2](https://www.youtube.com/watch?v=8DmkHFolBT4)
 - [After all she&#39;s a Sliver witch](https://www.youtube.com/watch?v=6JLMvGBj60E)
-- [A Mischievous Goddess ~ Aqua Got Stoned By Her Followers](https://www.youtube.com/watch?v=YZl8UwjCKq0)
-- [A Clothes Crisis ~~ Grand Blue](https://www.youtube.com/watch?v=wjrky28leNY)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
