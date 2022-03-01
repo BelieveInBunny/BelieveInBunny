@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Aren&#39;t those age restricted games?](https://www.youtube.com/watch?v=9s1Dt89-wQM)
 - [Aqua Takes Over the Confession Room](https://www.youtube.com/watch?v=-DNmjfL_xLE)
 - [Chole Appearance | The Case Study of Vanitas](https://www.youtube.com/watch?v=_E9XmDhdUW8)
 - [Slow Loop Episode 2](https://www.youtube.com/watch?v=HiNOXx66jsI)
 - [I&#39;m just working ~ My Dress Up Darling Episode 2](https://www.youtube.com/watch?v=8DmkHFolBT4)
-- [After all she&#39;s a Sliver witch](https://www.youtube.com/watch?v=6JLMvGBj60E)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
