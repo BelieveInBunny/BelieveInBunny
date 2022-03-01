@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Confession | Slow Loop](https://www.youtube.com/watch?v=177iClsyU9s)
 - [Grandpa ~ My Dress Up Darling Episode 4](https://www.youtube.com/watch?v=ZLvSnvGluMQ)
 - [Don&#39;t disturb me again - Eren vs Reiner](https://www.youtube.com/watch?v=azOq5X9rbpE)
 - [Aren&#39;t those age restricted games?](https://www.youtube.com/watch?v=9s1Dt89-wQM)
 - [Aqua Takes Over the Confession Room](https://www.youtube.com/watch?v=-DNmjfL_xLE)
-- [Chole Appearance | The Case Study of Vanitas](https://www.youtube.com/watch?v=_E9XmDhdUW8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
