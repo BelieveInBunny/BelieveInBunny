@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Sabiku Bisco Episode 4](https://www.youtube.com/watch?v=tw_KFJTXEMs)
 - [Domas vs King Desha ~ Ousama Ranking](https://www.youtube.com/watch?v=_igJeJ1MI3E)
 - [It Hurt&#39;s ~ The Case Study of Vanitas Part 2 Episode 4](https://www.youtube.com/watch?v=dYm63N30Tns)
 - [Shizuku-tan ~ My Dress Up Darling Episode 4](https://www.youtube.com/watch?v=2C8s2tO3yqU)
 - [Do better next time 😘](https://www.youtube.com/watch?v=v08rNwAsLQ4)
-- [Deshpa &amp; King Desha | Ousama Ranking](https://www.youtube.com/watch?v=37KtLUgGqsY)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
