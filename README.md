@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Episode 12 Insert Song Fena Pirate Princess](https://www.youtube.com/watch?v=D3-zeIYS9ok)
 - [Emiya-san Chi no Kyou no Gohan ~ Enjoying Meal](https://www.youtube.com/watch?v=CUUsfFXG2d0)
 - [My Dress Up Darling Episode 5](https://www.youtube.com/watch?v=PEoTOHP0ysY)
 - [Sabiku Bisco Episode 2](https://www.youtube.com/watch?v=LG9S6kX_zyk)
 - [Sabiku Bisco Episode 4](https://www.youtube.com/watch?v=tw_KFJTXEMs)
-- [Domas vs King Desha ~ Ousama Ranking](https://www.youtube.com/watch?v=_igJeJ1MI3E)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
