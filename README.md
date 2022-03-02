@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Falco proposes gabi ~ Attack on Titan Final Season Part 2 Episode 2](https://www.youtube.com/watch?v=xXUr4enIIxw)
 - [Eris Can Smell ~ Mushoku Tensei | Jobless Reincarnation](https://www.youtube.com/watch?v=O0rc2L4zf_A)
 - [Episode 12 Insert Song Fena Pirate Princess](https://www.youtube.com/watch?v=D3-zeIYS9ok)
 - [Emiya-san Chi no Kyou no Gohan ~ Enjoying Meal](https://www.youtube.com/watch?v=CUUsfFXG2d0)
 - [My Dress Up Darling Episode 5](https://www.youtube.com/watch?v=PEoTOHP0ysY)
-- [Sabiku Bisco Episode 2](https://www.youtube.com/watch?v=LG9S6kX_zyk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
