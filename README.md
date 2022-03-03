@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [let me go ~ Ousama Ranking Episode 16](https://www.youtube.com/watch?v=05ZQdDxkt6o)
 - [Fantasy Bishoujo Juniku Ojisan to Episode 6](https://www.youtube.com/watch?v=EVQV8LJFSIQ)
 - [Human Planting ~ Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=yuawaX5m_F8)
 - [How to Stop siblings fights ~ Leadale no Daichi nite, World of Leadale Episode 4](https://www.youtube.com/watch?v=h7WIRyiwB3k)
 - [High schoolers are terrifying ~ My Dress Up Darling Episode 3](https://www.youtube.com/watch?v=UjVyKvCTKAM)
-- [Her butt makes a really good noise when you smack it](https://www.youtube.com/watch?v=K2gYS97-NpQ)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
