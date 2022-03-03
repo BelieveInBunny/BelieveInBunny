@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [I want to become Shizuku tan ~ My Dress Up Darling Episode 2](https://www.youtube.com/watch?v=zPMfJtzLHHo)
 - [I wanna try too ~ Arifureta  From Commonplace to World&#39;s Strongest Season 2 Episode 2](https://www.youtube.com/watch?v=cW6UWhP5Q74)
 - [let me go ~ Ousama Ranking Episode 16](https://www.youtube.com/watch?v=05ZQdDxkt6o)
 - [Fantasy Bishoujo Juniku Ojisan to Episode 6](https://www.youtube.com/watch?v=EVQV8LJFSIQ)
 - [Human Planting ~ Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=yuawaX5m_F8)
-- [How to Stop siblings fights ~ Leadale no Daichi nite, World of Leadale Episode 4](https://www.youtube.com/watch?v=h7WIRyiwB3k)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
