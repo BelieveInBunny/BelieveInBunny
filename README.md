@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Human Planting ~ Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=yuawaX5m_F8)
 - [How to Stop siblings fights ~ Leadale no Daichi nite, World of Leadale Episode 4](https://www.youtube.com/watch?v=h7WIRyiwB3k)
 - [High schoolers are terrifying ~ My Dress Up Darling Episode 3](https://www.youtube.com/watch?v=UjVyKvCTKAM)
 - [Her butt makes a really good noise when you smack it](https://www.youtube.com/watch?v=K2gYS97-NpQ)
 - [Falco proposes gabi ~ Attack on Titan Final Season Part 2 Episode 2](https://www.youtube.com/watch?v=xXUr4enIIxw)
-- [Eris Can Smell ~ Mushoku Tensei | Jobless Reincarnation](https://www.youtube.com/watch?v=O0rc2L4zf_A)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
