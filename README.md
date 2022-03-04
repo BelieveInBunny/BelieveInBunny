@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Is this a love? ~ Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=xIY9X-t7w0Q)
 - [Komichi and Kao Being TOO CUTE](https://www.youtube.com/watch?v=KeTt7mrGmT0)
 - [Hiyori chan ganbatte ~ Slow Loop Episode 3](https://www.youtube.com/watch?v=HnyV8watQQQ)
 - [I want to become Shizuku tan ~ My Dress Up Darling Episode 2](https://www.youtube.com/watch?v=zPMfJtzLHHo)
 - [I wanna try too ~ Arifureta  From Commonplace to World&#39;s Strongest Season 2 Episode 2](https://www.youtube.com/watch?v=cW6UWhP5Q74)
-- [let me go ~ Ousama Ranking Episode 16](https://www.youtube.com/watch?v=05ZQdDxkt6o)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
