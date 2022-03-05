@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Ousama Ranking Episode 18](https://www.youtube.com/watch?v=YWJnSAHCzcI)
 - [Ousama Ranking Episode 14](https://www.youtube.com/watch?v=IzBMA1RpLcs)
 - [My name &#39; Love &#39; ~ Slow Loop Episode 2](https://www.youtube.com/watch?v=UHQfL8CeOFc)
 - [Fantasy Bishoujo Juniku Ojisan to Episode 4](https://www.youtube.com/watch?v=TsGixDaZgZY)
 - [It&#39;s just anime, why are you crying](https://www.youtube.com/watch?v=xgWDKf418yQ)
-- [Delicious ~ Arifureta  From Commonplace to World&#39;s Strongest Season 2 Episode 2](https://www.youtube.com/watch?v=-qDd-iXL19A)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
