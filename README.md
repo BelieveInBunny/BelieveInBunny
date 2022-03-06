@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [The Case Study of Vanitas Part 2 Episode 2](https://www.youtube.com/watch?v=MVEmog3vcQQ)
 - [Kazuma Traumatized By Horny Lady Orcs ~ Konosuba Movie](https://www.youtube.com/watch?v=ox2yfAnwG4A)
 - [Konosuba Movie ~ Kazuma Meets Megumins Family](https://www.youtube.com/watch?v=oUruHtNVxgc)
 - [Kazuma&#39;s Excalibur ~ Megumin Messes With Kazuma&#39;s Body](https://www.youtube.com/watch?v=xRukJtjKUxA)
 - [Kazuma Tries to Ease Out His Sexual Frustrations](https://www.youtube.com/watch?v=ZsDnDI1hvb8)
-- [Kazuma Loses His Mind ~ Kono Subarashii Sekai ni Shukufuku wo!](https://www.youtube.com/watch?v=2Q2YukybxRs)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
