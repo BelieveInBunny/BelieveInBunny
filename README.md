@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Mister,  you&#39;re a miss ~ Fantasy Bishoujo Juniku Ojisan to Episode 5](https://www.youtube.com/watch?v=ZV6fezJkNw0)
 - [Let&#39;s communicate in English ~ Slow loop Episode 7](https://www.youtube.com/watch?v=gL15URslwNs)
 - [The Case Study of Vanitas Part 2 Episode 2](https://www.youtube.com/watch?v=MVEmog3vcQQ)
 - [Kazuma Traumatized By Horny Lady Orcs ~ Konosuba Movie](https://www.youtube.com/watch?v=ox2yfAnwG4A)
 - [Konosuba Movie ~ Kazuma Meets Megumins Family](https://www.youtube.com/watch?v=oUruHtNVxgc)
-- [Kazuma&#39;s Excalibur ~ Megumin Messes With Kazuma&#39;s Body](https://www.youtube.com/watch?v=xRukJtjKUxA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
