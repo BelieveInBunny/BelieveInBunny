@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Funny Short Moment | Fantasy Bishoujo Juniku Ojisan to](https://www.youtube.com/watch?v=PH5_tcDSy6c)
+- [Headmaster of the Royal academy ~ In the Land of Leadale](https://www.youtube.com/watch?v=ow4-KFknVdk)
 - [Ousama Ranking Episode 14](https://www.youtube.com/watch?v=agh0Q7-nJno)
 - [Mister,  you&#39;re a miss ~ Fantasy Bishoujo Juniku Ojisan to Episode 5](https://www.youtube.com/watch?v=ZV6fezJkNw0)
 - [Let&#39;s communicate in English ~ Slow loop Episode 7](https://www.youtube.com/watch?v=gL15URslwNs)
-- [The Case Study of Vanitas Part 2 Episode 2](https://www.youtube.com/watch?v=MVEmog3vcQQ)
-- [Kazuma Traumatized By Horny Lady Orcs ~ Konosuba Movie](https://www.youtube.com/watch?v=ox2yfAnwG4A)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
