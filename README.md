@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Allergic to Foreign Words ~  Slow Loop Episode 2](https://www.youtube.com/watch?v=ohGXygOPfHA)
 - [Save me, Ginguji ~ Fantasy Bishoujo Juniku Ojisan to Episode 3](https://www.youtube.com/watch?v=pzYdqODFStg)
 - [Peeking ~ My Dress Up Darling Episode 2](https://www.youtube.com/watch?v=MSbH71NZ4gI)
 - [On Boat with Papa ~ Slow loop Episode 5](https://www.youtube.com/watch?v=cdZh1Oijgd4)
 - [Ousama Ranking Episode 18](https://www.youtube.com/watch?v=UONbgk6OhhI)
-- [World of Leadale Episode 5](https://www.youtube.com/watch?v=IWTsVz9YU4Q)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
