@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [On Boat with Papa ~ Slow loop Episode 5](https://www.youtube.com/watch?v=cdZh1Oijgd4)
 - [Ousama Ranking Episode 18](https://www.youtube.com/watch?v=UONbgk6OhhI)
 - [World of Leadale Episode 5](https://www.youtube.com/watch?v=IWTsVz9YU4Q)
 - [Only one blanket ~ The Case Study of Vanitas Part 2 Episode 2](https://www.youtube.com/watch?v=ghapsDhZCMI)
 - [I love you ~ Teasing Master: Takagi san 3 Episode 2](https://www.youtube.com/watch?v=P-d09BSiB5k)
-- [Funny Short Moment | Fantasy Bishoujo Juniku Ojisan to](https://www.youtube.com/watch?v=PH5_tcDSy6c)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
