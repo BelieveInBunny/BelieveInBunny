@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Tachibana ~ Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=pVt42lpTw60)
 - [Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=jgszo5KrklE)
 - [Hide Face ~  Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=up4ynjmsLqg)
 - [Allergic to Foreign Words ~  Slow Loop Episode 2](https://www.youtube.com/watch?v=ohGXygOPfHA)
 - [Save me, Ginguji ~ Fantasy Bishoujo Juniku Ojisan to Episode 3](https://www.youtube.com/watch?v=pzYdqODFStg)
-- [Peeking ~ My Dress Up Darling Episode 2](https://www.youtube.com/watch?v=MSbH71NZ4gI)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
