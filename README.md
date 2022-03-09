@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [We know you won&#39;t delete ~ My Dress Up  Darling Episode 5](https://www.youtube.com/watch?v=hwq6COrTDlg)
 - [Tachibana ~ Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=9brx2ZEUK5s)
 - [Tachibana ~ Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=pVt42lpTw60)
 - [Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=jgszo5KrklE)
 - [Hide Face ~  Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=up4ynjmsLqg)
-- [Allergic to Foreign Words ~  Slow Loop Episode 2](https://www.youtube.com/watch?v=ohGXygOPfHA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
