@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Old Friend Come To Your Shop ~ Slow loop Episode 6](https://www.youtube.com/watch?v=daM2PNkV5AI)
 - [Funny Moments | Welcome to Demon School! Iruma kun](https://www.youtube.com/watch?v=5t87GGyyIT8)
 - [We know you won&#39;t delete ~ My Dress Up  Darling Episode 5](https://www.youtube.com/watch?v=hwq6COrTDlg)
 - [Tachibana ~ Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=9brx2ZEUK5s)
 - [Tachibana ~ Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=pVt42lpTw60)
-- [Fantasy Bishoujo Juniku Ojisan to Episode 2](https://www.youtube.com/watch?v=jgszo5KrklE)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
