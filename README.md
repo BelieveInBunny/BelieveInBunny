@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Alright ~ lets do it~~](https://www.youtube.com/watch?v=GDf1vzgUVV0)
 - [Are you a Panda person? ~ Jujutsu Kaisen](https://www.youtube.com/watch?v=uZGTDVYH-Zo)
 - [We&#39;re pretty close , right ~ My Dress Up Darling Episode 3](https://www.youtube.com/watch?v=iPxsAB4B-J0)
 - [When suddenly mama meets your new papa ~ Arifureta  From Commonplace to World&#39;s Strongest S2 EP04](https://www.youtube.com/watch?v=Llj1ex1-fC8)
 - [When you become a girl &amp; now you have to use women&#39;s toilet ~ Kenja no Deshi wo Nanoru Kenja EP02](https://www.youtube.com/watch?v=GDZpID99pV4)
-- [When you meet your childhood friend after a long time](https://www.youtube.com/watch?v=P_f8Fv4cHWg)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
