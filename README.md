@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [「AMV」When I am breaking the finger](https://www.youtube.com/watch?v=QNSz39SkUxg)
 - [It&#39;s a trap ~ Anime funny moments](https://www.youtube.com/watch?v=Vq9PjHRBM7I)
 - [Hilarious ~ how to talk English in Anime](https://www.youtube.com/watch?v=QfE2vH-tSt8)
 - [Hottest Kisses In Anime ~ Anime Kiss](https://www.youtube.com/watch?v=R4e0sOVS_Iw)
 - [「AMV」Redo of Healer ~ KRAMPUS’](https://www.youtube.com/watch?v=lgHmArW2p24)
-- [Wipe me down ~ Arifureta  From Commonplace to World&#39;s Strongest Season 2 Episode 2](https://www.youtube.com/watch?v=mT2KdS_bV4M)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
