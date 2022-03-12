@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Hottest Kisses In Anime ~ Anime Kiss](https://www.youtube.com/watch?v=R4e0sOVS_Iw)
 - [「AMV」Redo of Healer ~ KRAMPUS’](https://www.youtube.com/watch?v=lgHmArW2p24)
 - [Wipe me down ~ Arifureta  From Commonplace to World&#39;s Strongest Season 2 Episode 2](https://www.youtube.com/watch?v=mT2KdS_bV4M)
 - [Women with a slender waist and Big bo&#39;s are humanity&#39;s greatest treasure](https://www.youtube.com/watch?v=dbjX1IP81p8)
 - [Alright ~ lets do it~~](https://www.youtube.com/watch?v=GDf1vzgUVV0)
-- [Are you a Panda person? ~ Jujutsu Kaisen](https://www.youtube.com/watch?v=uZGTDVYH-Zo)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
