@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [The Silver Guardian ~ Movie | English Dubbed - Anime Full Screen &lpar;AnimeKuro.org&rpar;](https://www.youtube.com/watch?v=oP9UTxsFDek)
 - [Are you ready Sensei?](https://www.youtube.com/watch?v=lIKFV4QFSlA)
 - [「AMV」Attack on Titan OP x GRAND BLUE](https://www.youtube.com/watch?v=-GM5SXLSlDc)
 - [「AMV」I will save my only friend](https://www.youtube.com/watch?v=TOjEmWQ37T8)
 - [「AMV」When I am breaking the finger](https://www.youtube.com/watch?v=QNSz39SkUxg)
-- [It&#39;s a trap ~ Anime funny moments](https://www.youtube.com/watch?v=Vq9PjHRBM7I)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
