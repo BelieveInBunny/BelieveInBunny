@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [BTOOOM! | &lpar;Episode 01 to 12&rpar; - English Dubbed - Anime Full Screen](https://www.youtube.com/watch?v=VecVhIxyXhk)
 - [Can I touch it?](https://www.youtube.com/watch?v=GWtGb_18F1s)
 - [Are you busy mom? 😅](https://www.youtube.com/watch?v=A7NHao7q0Pk)
 - [Dagashi Kashi | &lpar;Episode 01 to 12&rpar; - English Dubbed - Anime Full Screen](https://www.youtube.com/watch?v=-Tl93UhGNxc)
 - [The Silver Guardian ~ Movie | English Dubbed - Anime Full Screen &lpar;AnimeKuro.org&rpar;](https://www.youtube.com/watch?v=oP9UTxsFDek)
-- [Are you ready Sensei?](https://www.youtube.com/watch?v=lIKFV4QFSlA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
