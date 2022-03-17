@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Black Batman vs JJ Jameson Superman](https://www.youtube.com/watch?v=U9EbCr_sZ3s)
+- [100$ For A Quick One ~ Kyoukai no Kanata](https://www.youtube.com/watch?v=4ErGIxhG8_4)
 - [Alma Trolls Lurie and Matty For Been Lovey Dovey ~ Shikkakumon no Saikyou Kenja E5](https://www.youtube.com/watch?v=dBdFnk8nZJk)
 - [Can you come with me?](https://www.youtube.com/watch?v=cWBL-7-gcoc)
 - [Cayna and Her Son&#39;s Cute Moments](https://www.youtube.com/watch?v=YYHdSlp7myU)
-- [Cayna Apologizes To Her Kids](https://www.youtube.com/watch?v=yUQV6kkHLNU)
-- [BTOOOM! | &lpar;Episode 01 to 12&rpar; - English Dubbed - Anime Full Screen](https://www.youtube.com/watch?v=VecVhIxyXhk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
