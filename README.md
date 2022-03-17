@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [「AMV」Assassins Pride Kufa x Melida](https://www.youtube.com/watch?v=lOQv9lKyRao)
 - [too big for a middle school girl ~ My Dress Up Darling Episode 7](https://www.youtube.com/watch?v=S-3_OUAJpOc)
 - [Fena ~ The Pirate princess](https://www.youtube.com/watch?v=pbuGKKXLDOs)
 - [2000 years old Demon Spittin Facts ~ Jitsu wa Watashi wa](https://www.youtube.com/watch?v=ql8baq4XuVk)
 - [Black Batman vs JJ Jameson Superman](https://www.youtube.com/watch?v=U9EbCr_sZ3s)
-- [100$ For A Quick One ~ Kyoukai no Kanata](https://www.youtube.com/watch?v=4ErGIxhG8_4)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
