@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Vampire King | &lpar;Episode 01 to 12&rpar; - English Dub - Not Full Screen](https://www.youtube.com/watch?v=E4WoUFIql5M)
 - [Blend S ~ Funny Anime Moments](https://www.youtube.com/watch?v=knAUwAKsSAk)
 - [Bloodivores Time Prisoners | &lpar;Episode 01 to 12&rpar; - English Subbed - Anime Full Screen](https://www.youtube.com/watch?v=buPMSCwjbJQ)
 - [Blader&#39;s Thoughts on Kuroitsu&#39;s Bad Day ~ Kaijin Kaihatsu bu no Kuroitsu san Episode 3](https://www.youtube.com/watch?v=KNjvOlSmH70)
 - [Best Dark skinned Girls romance moments in Anime](https://www.youtube.com/watch?v=7V9sApUquAI)
-- [「AMV」Assassins Pride Kufa x Melida](https://www.youtube.com/watch?v=lOQv9lKyRao)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
