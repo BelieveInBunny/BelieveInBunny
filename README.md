@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Blader&#39;s Thoughts on Kuroitsu&#39;s Bad Day ~ Kaijin Kaihatsu bu no Kuroitsu san Episode 3](https://www.youtube.com/watch?v=KNjvOlSmH70)
 - [Best Dark skinned Girls romance moments in Anime](https://www.youtube.com/watch?v=7V9sApUquAI)
 - [「AMV」Assassins Pride Kufa x Melida](https://www.youtube.com/watch?v=lOQv9lKyRao)
 - [too big for a middle school girl ~ My Dress Up Darling Episode 7](https://www.youtube.com/watch?v=S-3_OUAJpOc)
 - [Fena ~ The Pirate princess](https://www.youtube.com/watch?v=pbuGKKXLDOs)
-- [2000 years old Demon Spittin Facts ~ Jitsu wa Watashi wa](https://www.youtube.com/watch?v=ql8baq4XuVk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
