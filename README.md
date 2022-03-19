@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Do you wanna try it?](https://www.youtube.com/watch?v=OMyH78u3Nt0)
 - [Itadori Vs Sukuna ~ Jujutsu kaisen Episode 6](https://www.youtube.com/watch?v=tnhkOu94nNA)
 - [Delete that ~ White Blue](https://www.youtube.com/watch?v=vpZ8aRLh7hE)
 - [Vampire King | &lpar;Episode 01 to 12&rpar; - English Dub - Not Full Screen](https://www.youtube.com/watch?v=E4WoUFIql5M)
 - [Blend S ~ Funny Anime Moments](https://www.youtube.com/watch?v=knAUwAKsSAk)
-- [Bloodivores Time Prisoners | &lpar;Episode 01 to 12&rpar; - English Subbed - Anime Full Screen](https://www.youtube.com/watch?v=buPMSCwjbJQ)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
