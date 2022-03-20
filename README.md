@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [CC as a slave moment ~ Code Geass](https://www.youtube.com/watch?v=80214rrWFjs)
 - [But you told me you would be gentle sensei](https://www.youtube.com/watch?v=b2ZP4rtpHCQ)
 - [Boys Only Onething And Its Disgusting](https://www.youtube.com/watch?v=2y57wrGiX88)
 - [BOOST! Nezuko uses the Boosted Gear](https://www.youtube.com/watch?v=ajQLaNjVd04)
 - [Come to my room or I will tell everyone about this](https://www.youtube.com/watch?v=QbYDHqVemQQ)
-- [Do you wanna try it?](https://www.youtube.com/watch?v=OMyH78u3Nt0)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
