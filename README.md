@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Boys Only Onething And Its Disgusting](https://www.youtube.com/watch?v=2y57wrGiX88)
 - [BOOST! Nezuko uses the Boosted Gear](https://www.youtube.com/watch?v=ajQLaNjVd04)
 - [Come to my room or I will tell everyone about this](https://www.youtube.com/watch?v=QbYDHqVemQQ)
 - [Do you wanna try it?](https://www.youtube.com/watch?v=OMyH78u3Nt0)
 - [Itadori Vs Sukuna ~ Jujutsu kaisen Episode 6](https://www.youtube.com/watch?v=tnhkOu94nNA)
-- [Delete that ~ White Blue](https://www.youtube.com/watch?v=vpZ8aRLh7hE)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
