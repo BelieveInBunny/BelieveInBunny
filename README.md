@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Erza searching for spy cam](https://www.youtube.com/watch?v=4rV1kSxLbv8)
+- [Carter Pewterschmidt ~ Best Moments](https://www.youtube.com/watch?v=8E8M-ZoDMb0)
 - [Can You Help Me Onii-Chan?](https://www.youtube.com/watch?v=ypGYQn6lQQk)
 - [Can You Help Me Change ~ Shuumatsu no Harem Episode 4](https://www.youtube.com/watch?v=S3Gxfoiv0sg)
 - [CaN yOu HeAl uP wItH a BrEaThiNg TeChNiQuE](https://www.youtube.com/watch?v=Zdnphz8r6WU)
-- [CC as a slave moment ~ Code Geass](https://www.youtube.com/watch?v=80214rrWFjs)
-- [But you told me you would be gentle sensei](https://www.youtube.com/watch?v=b2ZP4rtpHCQ)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
