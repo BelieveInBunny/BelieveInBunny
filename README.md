@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Cayna Meets Mei Mei ~ Leadale no Daichi nite Episode 5](https://www.youtube.com/watch?v=3GpMK0FmAKw)
 - [Demon Spirit Seed Manual | &lpar;Episode 01 to 12&rpar; - English Subbed - Anime Full Screen](https://www.youtube.com/watch?v=xWDGOJdNlUA)
 - [Caerina Sakai ~ Leadale no Daichi nite Episode 5](https://www.youtube.com/watch?v=jgv2Nc92ruY)
 - [Cayna Meeting Her Daughter Mai ~ Leadale no Daichi nite Episode 3](https://www.youtube.com/watch?v=K_CEwGqjEUc)
 - [Don&#39;t tell anyone](https://www.youtube.com/watch?v=nWzOTBRbauQ)
-- [Do Your Best A Kun](https://www.youtube.com/watch?v=yD8-xriaeq8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
