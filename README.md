@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Cutest Drunk Girls in Anime ~ Funny Anime Moments](https://www.youtube.com/watch?v=qTYnv0wUoXI)
 - [Cute Wolf Girl is Not Wearing One ~ Kaijin Kaihatsu bu no Kuroitsu san Episode 2](https://www.youtube.com/watch?v=BXnDRmTP84s)
 - [Compilation of Funny Anime Moments #2](https://www.youtube.com/watch?v=cPmj4eTcTfY)
 - [Come with me ~ HeNtAi](https://www.youtube.com/watch?v=DbNBeHsGrzA)
 - [Cleveland Brown Best Moments](https://www.youtube.com/watch?v=FN9TKKzuCT8)
-- [Chloe Finally Got What She Wanted ~ Vanitas no Carte Part 2 Episode 4](https://www.youtube.com/watch?v=_aEmbQGZ0MA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
