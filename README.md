@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Hermit&#39;s Traumatizing Past ~ Edens Zero](https://www.youtube.com/watch?v=hZUyhM-7e2E)
 - [Hi! Come On!](https://www.youtube.com/watch?v=sUz1VyCWw2M)
 - [Did you see it? ~ FaUlT s](https://www.youtube.com/watch?v=cs2Hq2LkzSQ)
 - [Cutest Magical Girl Transformation ~ Kaijin Kaihatsu bu no Kuroitsu san Episode 3](https://www.youtube.com/watch?v=Fq-8ALI-htY)
 - [Even Bad Guys Fall For Cayna ~ Hot Leadale no Daichi nite Episode 5](https://www.youtube.com/watch?v=SugMJWqHoTE)
-- [Cutest Drunk Girls in Anime ~ Funny Anime Moments](https://www.youtube.com/watch?v=qTYnv0wUoXI)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
