@@ -48,11 +48,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
+- [Did you see it? ~ FaUlT s](https://www.youtube.com/watch?v=cs2Hq2LkzSQ)
 - [Cutest Magical Girl Transformation ~ Kaijin Kaihatsu bu no Kuroitsu san Episode 3](https://www.youtube.com/watch?v=Fq-8ALI-htY)
 - [Even Bad Guys Fall For Cayna ~ Hot Leadale no Daichi nite Episode 5](https://www.youtube.com/watch?v=SugMJWqHoTE)
 - [Cutest Drunk Girls in Anime ~ Funny Anime Moments](https://www.youtube.com/watch?v=qTYnv0wUoXI)
 - [Cute Wolf Girl is Not Wearing One ~ Kaijin Kaihatsu bu no Kuroitsu san Episode 2](https://www.youtube.com/watch?v=BXnDRmTP84s)
-- [Compilation of Funny Anime Moments #2](https://www.youtube.com/watch?v=cPmj4eTcTfY)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/codestackr)
