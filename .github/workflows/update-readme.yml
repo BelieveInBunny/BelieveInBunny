@@ -1,17 +1,15 @@
 name: GitHub - Activity - Readme
 
 on:
-  schedule:
-    - cron: '*/30 * * * *' # Update every 30 minutes
-  workflow_dispatch:
-
+  schedule: # Run workflow automatically
+    - cron: '0 * * * *' # Run every 1 hour.
+  workflow_dispatch: # Run workflow manually (without waiting for the cron to be called), through the Github Actions Workflow page directly
 jobs:
-  build:
+  update-readme-with-recent-activity:
+    name: Update this repo's README with recent activity
     runs-on: ubuntu-latest
-    name: Update Profile README
-
     steps:
-      - uses: actions/checkout@v2.3.4
-      - uses: Readme-Workflows/recent-activity@{version}
+      - uses: actions/checkout@v2
+      - uses: jamesgeorge007/github-activity-readme@master
         env:
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
