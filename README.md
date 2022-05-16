@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Crunchyroll Announces August 2022 Home Video Releases, Including My Hero Academia: World Heroes&#39; Mission](https://otakupal.com/crunchyroll-announces-august-2022-home-video-releases-including-my-hero-academia-world-heroes-mission/)
+- [Horse Girls Sport Boss Coffee Jackets in Suntory x Umamusume Collaboration](https://otakupal.com/horse-girls-sport-boss-coffee-jackets-in-suntory-x-umamusume-collaboration/)
 - [Pump Iron Like a Pirate in Tokyo&#39;s Official One Piece Gym](https://otakupal.com/pump-iron-like-a-pirate-in-tokyos-official-one-piece-gym/)
 - [Add A Gloomy And Icy Touch To Your Nightcap From NieR Replicant ver.1.22474487139 With An Emil Silicone Ice Tray](https://otakupal.com/add-a-gloomy-and-icy-touch-to-your-nightcap-from-nier-replicant-ver-1-22474487139-with-an-emil-silicone-ice-tray/)
 - [Fire Force Season 3 Officially Announced](https://otakupal.com/fire-force-season-3-officially-announced/)
-- [The Duke of Death and His Maid Confirms 2nd TV Anime Season for 2023](https://otakupal.com/the-duke-of-death-and-his-maid-confirms-2nd-tv-anime-season-for-2023/)
-- [FEATURE: The Soul Of One Piece — Megumi Ishitani&#39;s Wano Episodes](https://otakupal.com/feature-the-soul-of-one-piece-megumi-ishitanis-wano-episodes/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
