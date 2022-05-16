@@ -67,11 +67,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [How To Pass Application Tracking Systems &lpar;ATS&rpar; &amp; Get Interviews - Resume Tips for Software Developer](https://dev.to/codestackr/how-to-pass-application-tracking-systems-ats-get-interviews-resume-tips-for-software-developer-4bmo)
-- [Microinteractions: Password Validation Animation](https://dev.to/codestackr/microinteractions-password-validation-animation-5629)
-- [Notion + YouTube - A Powerful Combination for Productivity](https://dev.to/codestackr/notion-youtube-a-powerful-combination-for-productivity-1def)
-- [Regular Expressions &lpar;RegEx&rpar; Crash Course](https://dev.to/codestackr/regular-expressions-regex-crash-course-248n)
-- [Emmet Part 2 - Advanced](https://dev.to/codestackr/emmet-part-2-advanced-4c65)
+- [Pump Iron Like a Pirate in Tokyo&#39;s Official One Piece Gym](https://otakupal.com/pump-iron-like-a-pirate-in-tokyos-official-one-piece-gym/)
+- [Add A Gloomy And Icy Touch To Your Nightcap From NieR Replicant ver.1.22474487139 With An Emil Silicone Ice Tray](https://otakupal.com/add-a-gloomy-and-icy-touch-to-your-nightcap-from-nier-replicant-ver-1-22474487139-with-an-emil-silicone-ice-tray/)
+- [Fire Force Season 3 Officially Announced](https://otakupal.com/fire-force-season-3-officially-announced/)
+- [The Duke of Death and His Maid Confirms 2nd TV Anime Season for 2023](https://otakupal.com/the-duke-of-death-and-his-maid-confirms-2nd-tv-anime-season-for-2023/)
+- [FEATURE: The Soul Of One Piece — Megumi Ishitani&#39;s Wano Episodes](https://otakupal.com/feature-the-soul-of-one-piece-megumi-ishitanis-wano-episodes/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://codestackr.com)
