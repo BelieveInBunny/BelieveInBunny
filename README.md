@@ -44,6 +44,12 @@
 
 ---
 
+### 🤖 Stat's
+![BelieveInBunny's GitHub stats](https://github-readme-stats.vercel.app/api?username=BelieveInBunny&show_icons=true&bg_color=DEG,e96444,ffb302,170a07)
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=BelieveInBunny&layout=compact)]
+
+
+
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
