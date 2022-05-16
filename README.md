@@ -74,7 +74,7 @@
 - [FEATURE: The Soul Of One Piece — Megumi Ishitani&#39;s Wano Episodes](https://otakupal.com/feature-the-soul-of-one-piece-megumi-ishitanis-wano-episodes/)
 <!-- BLOG-POST-LIST:END -->
 
-➡️ [more blog posts...](https://codestackr.com)
+➡️ [more blog posts...](https://otakupal.com)
 
 ---
 
