@@ -45,7 +45,6 @@
 ---
 
 ### 🤖 Stat's
-![BelieveInBunny's GitHub stats](https://github-readme-stats.vercel.app/api?username=BelieveInBunny&show_icons=true&bg_color=DEG,2d2d2d,2d2d2d&title_color=Ffffff&text_color=Ffbb00&icon_color=Ffbb00)
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=BelieveInBunny&layout=compact)]
 
 
@@ -94,7 +93,7 @@
 <details>
   <summary>:zap: GitHub Stats</summary>
 
-  <img align="left" alt="AnimeKuro's GitHub Stats" src="https://github-readme-stats-codestackr.vercel.app/api?username=BelieveInBunny&show_icons=true&hide_border=true" />
+![BelieveInBunny's GitHub stats](https://github-readme-stats.vercel.app/api?username=BelieveInBunny&show_icons=true&bg_color=DEG,2d2d2d,2d2d2d&title_color=Ffffff&text_color=Ffbb00&icon_color=Ffbb00)
 
 </details>
 
