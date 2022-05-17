@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [JUJUTSU KASIEN 0 Gets Final Stage Event on Film&#39;s Final Day in Japanese Theaters](https://otakupal.com/jujutsu-kasien-0-gets-final-stage-event-on-films-final-day-in-japanese-theaters/)
+- [Touken Ranbu Warriors PC Version Joins Switch Release in the West](https://otakupal.com/touken-ranbu-warriors-pc-version-joins-switch-release-in-the-west/)
 - [Cyberpunk Anime Spin-off Will Reveal Full Trailer Next Month](https://otakupal.com/cyberpunk-anime-spin-off-will-reveal-full-trailer-next-month/)
 - [Bulma&#39;s Dragon Ball Super: SUPER HERO Anime Film Outfit Gets Recreated for XLARGE Collab](https://otakupal.com/bulmas-dragon-ball-super-super-hero-anime-film-outfit-gets-recreated-for-xlarge-collab/)
 - [Japan to Open Back Up for Tourism Slowly With Trials Starting in June for 4 Countries](https://otakupal.com/japan-to-open-back-up-for-tourism-slowly-with-trials-starting-in-june-for-4-countries/)
-- [New Anime By ‘Jahy Sama Will Not Be Defeated’ Creator Scheduled For July 2022](https://otakupal.com/new-anime-by-jahy-sama-will-not-be-defeated-creator-scheduled-for-july-2022/)
-- [Saga Prefecture Gets Their 1st Pokémon Manhole Covers Featuring Meowth in a Balloon](https://otakupal.com/saga-prefecture-gets-their-1st-pokemon-manhole-covers-featuring-meowth-in-a-balloon/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
