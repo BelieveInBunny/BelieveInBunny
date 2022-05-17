@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Nyarko Voice Actor Kana Asumi Announces the Safe Birth of Her Child](https://otakupal.com/nyarko-voice-actor-kana-asumi-announces-the-safe-birth-of-her-child/)
+- [Listen to Riria.&#39;s Clear and Transparent Singing Voice in Bubble Ending Theme Music Video](https://otakupal.com/listen-to-riria-s-clear-and-transparent-singing-voice-in-bubble-ending-theme-music-video/)
+- [To Sleep So As to Dream](https://otakupal.com/to-sleep-so-as-to-dream/)
+- [Atsushi Ohkubo&#39;s Fire Force Manga Finally Prints 20 Million Copies Worldwide](https://otakupal.com/atsushi-ohkubos-fire-force-manga-finally-prints-20-million-copies-worldwide/)
 - [Asaka Posts Music Video for Laid-Back Camp: Movie Theme Song &quot;Sun Is Coming Up&quot;](https://otakupal.com/asaka-posts-music-video-for-laid-back-camp-movie-theme-song-sun-is-coming-up/)
-- [Girls&#39; Climbing Life Begins Again in Encouragement of Climb Next Summit New CM](https://otakupal.com/girls-climbing-life-begins-again-in-encouragement-of-climb-next-summit-new-cm/)
-- [Crunchyroll Announces August 2022 Home Video Releases, Including My Hero Academia: World Heroes&#39; Mission](https://otakupal.com/crunchyroll-announces-august-2022-home-video-releases-including-my-hero-academia-world-heroes-mission/)
-- [Horse Girls Sport Boss Coffee Jackets in Suntory x Umamusume Collaboration](https://otakupal.com/horse-girls-sport-boss-coffee-jackets-in-suntory-x-umamusume-collaboration/)
-- [Pump Iron Like a Pirate in Tokyo&#39;s Official One Piece Gym](https://otakupal.com/pump-iron-like-a-pirate-in-tokyos-official-one-piece-gym/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
