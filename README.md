@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Asaka Posts Music Video for Laid-Back Camp: Movie Theme Song &quot;Sun Is Coming Up&quot;](https://otakupal.com/asaka-posts-music-video-for-laid-back-camp-movie-theme-song-sun-is-coming-up/)
+- [Girls&#39; Climbing Life Begins Again in Encouragement of Climb Next Summit New CM](https://otakupal.com/girls-climbing-life-begins-again-in-encouragement-of-climb-next-summit-new-cm/)
 - [Crunchyroll Announces August 2022 Home Video Releases, Including My Hero Academia: World Heroes&#39; Mission](https://otakupal.com/crunchyroll-announces-august-2022-home-video-releases-including-my-hero-academia-world-heroes-mission/)
 - [Horse Girls Sport Boss Coffee Jackets in Suntory x Umamusume Collaboration](https://otakupal.com/horse-girls-sport-boss-coffee-jackets-in-suntory-x-umamusume-collaboration/)
 - [Pump Iron Like a Pirate in Tokyo&#39;s Official One Piece Gym](https://otakupal.com/pump-iron-like-a-pirate-in-tokyos-official-one-piece-gym/)
-- [Add A Gloomy And Icy Touch To Your Nightcap From NieR Replicant ver.1.22474487139 With An Emil Silicone Ice Tray](https://otakupal.com/add-a-gloomy-and-icy-touch-to-your-nightcap-from-nier-replicant-ver-1-22474487139-with-an-emil-silicone-ice-tray/)
-- [Fire Force Season 3 Officially Announced](https://otakupal.com/fire-force-season-3-officially-announced/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
