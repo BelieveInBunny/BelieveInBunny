@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Utawarerumono Mask of Truth TV Anime Reveals 5 More Cast Members](https://otakupal.com/utawarerumono-mask-of-truth-tv-anime-reveals-5-more-cast-members/)
 - [JUJUTSU KASIEN 0 Gets Final Stage Event on Film&#39;s Final Day in Japanese Theaters](https://otakupal.com/jujutsu-kasien-0-gets-final-stage-event-on-films-final-day-in-japanese-theaters/)
 - [Touken Ranbu Warriors PC Version Joins Switch Release in the West](https://otakupal.com/touken-ranbu-warriors-pc-version-joins-switch-release-in-the-west/)
 - [Cyberpunk Anime Spin-off Will Reveal Full Trailer Next Month](https://otakupal.com/cyberpunk-anime-spin-off-will-reveal-full-trailer-next-month/)
 - [Bulma&#39;s Dragon Ball Super: SUPER HERO Anime Film Outfit Gets Recreated for XLARGE Collab](https://otakupal.com/bulmas-dragon-ball-super-super-hero-anime-film-outfit-gets-recreated-for-xlarge-collab/)
-- [Japan to Open Back Up for Tourism Slowly With Trials Starting in June for 4 Countries](https://otakupal.com/japan-to-open-back-up-for-tourism-slowly-with-trials-starting-in-june-for-4-countries/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
