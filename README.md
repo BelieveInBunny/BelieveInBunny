@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [New Anime By ‘Jahy Sama Will Not Be Defeated’ Creator Scheduled For July 2022](https://otakupal.com/new-anime-by-jahy-sama-will-not-be-defeated-creator-scheduled-for-july-2022/)
+- [Saga Prefecture Gets Their 1st Pokémon Manhole Covers Featuring Meowth in a Balloon](https://otakupal.com/saga-prefecture-gets-their-1st-pokemon-manhole-covers-featuring-meowth-in-a-balloon/)
 - [Makoto Shinkai&#39;s Suzume no Tojimari Anime Film Gets Novel Adaptation](https://otakupal.com/makoto-shinkais-suzume-no-tojimari-anime-film-gets-novel-adaptation/)
 - [Char Aznable Makes Unexpected Appearance in Mobile Suit Gundam: Cucuruz Doan&#39;s Island](https://otakupal.com/char-aznable-makes-unexpected-appearance-in-mobile-suit-gundam-cucuruz-doans-island/)
 - [The Maid I Hired Recently Is Mysterious Announces TV Anime for Summer 2022](https://otakupal.com/the-maid-i-hired-recently-is-mysterious-announces-tv-anime-for-summer-2022/)
-- [Shin Japan Heroes Amusement World Brings Together Evangelion, Godzilla, Ultraman, Kamen Rider for Real-Life ‘Dream Collaboration&#39;](https://otakupal.com/shin-japan-heroes-amusement-world-brings-together-evangelion-godzilla-ultraman-kamen-rider-for-real-life-dream-collaboration/)
-- [Japan Box Office: Shin Ultraman Beats Conan, Making Impressive No.1 Debut](https://otakupal.com/japan-box-office-shin-ultraman-beats-conan-making-impressive-no-1-debut/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
