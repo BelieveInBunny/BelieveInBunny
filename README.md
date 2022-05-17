@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Second HYPNOSISMIC Album Cover Reps All Six Divisions](https://otakupal.com/second-hypnosismic-album-cover-reps-all-six-divisions/)
+- [Supernatural TV Anime &#39;Malevolent Spirits: Mononogatari&#39; Releases 1st Teaser Trailer, Visual](https://otakupal.com/supernatural-tv-anime-malevolent-spirits-mononogatari-releases-1st-teaser-trailer-visual/)
 - [QUIZ:  Shikimori&#39;s Not Just A Cutie! Can You Activate Her Cool Side?](https://otakupal.com/quiz-shikimoris-not-just-a-cutie-can-you-activate-her-cool-side/)
 - [Sword Art Online Anime to Get New Information in 10th Anniversary Stream on May 27](https://otakupal.com/sword-art-online-anime-to-get-new-information-in-10th-anniversary-stream-on-may-27/)
 - [Universe 11 Hero Dyspo Heads to Dragon Ball Xenoverse 2 This Summer](https://otakupal.com/universe-11-hero-dyspo-heads-to-dragon-ball-xenoverse-2-this-summer/)
-- [Final Fantasy XV Has Sold 10 Million Copies Worldwide](https://otakupal.com/final-fantasy-xv-has-sold-10-million-copies-worldwide/)
-- [Utawarerumono Mask of Truth TV Anime Reveals 5 More Cast Members](https://otakupal.com/utawarerumono-mask-of-truth-tv-anime-reveals-5-more-cast-members/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
