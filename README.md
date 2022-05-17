@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Makoto Shinkai&#39;s Suzume no Tojimari Anime Film Gets Novel Adaptation](https://otakupal.com/makoto-shinkais-suzume-no-tojimari-anime-film-gets-novel-adaptation/)
+- [Char Aznable Makes Unexpected Appearance in Mobile Suit Gundam: Cucuruz Doan&#39;s Island](https://otakupal.com/char-aznable-makes-unexpected-appearance-in-mobile-suit-gundam-cucuruz-doans-island/)
 - [The Maid I Hired Recently Is Mysterious Announces TV Anime for Summer 2022](https://otakupal.com/the-maid-i-hired-recently-is-mysterious-announces-tv-anime-for-summer-2022/)
 - [Shin Japan Heroes Amusement World Brings Together Evangelion, Godzilla, Ultraman, Kamen Rider for Real-Life ‘Dream Collaboration&#39;](https://otakupal.com/shin-japan-heroes-amusement-world-brings-together-evangelion-godzilla-ultraman-kamen-rider-for-real-life-dream-collaboration/)
 - [Japan Box Office: Shin Ultraman Beats Conan, Making Impressive No.1 Debut](https://otakupal.com/japan-box-office-shin-ultraman-beats-conan-making-impressive-no-1-debut/)
-- [Nyarko Voice Actor Kana Asumi Announces the Safe Birth of Her Child](https://otakupal.com/nyarko-voice-actor-kana-asumi-announces-the-safe-birth-of-her-child/)
-- [Listen to Riria.&#39;s Clear and Transparent Singing Voice in Bubble Ending Theme Music Video](https://otakupal.com/listen-to-riria-s-clear-and-transparent-singing-voice-in-bubble-ending-theme-music-video/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
