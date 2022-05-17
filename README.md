@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [The Maid I Hired Recently Is Mysterious Announces TV Anime for Summer 2022](https://otakupal.com/the-maid-i-hired-recently-is-mysterious-announces-tv-anime-for-summer-2022/)
+- [Shin Japan Heroes Amusement World Brings Together Evangelion, Godzilla, Ultraman, Kamen Rider for Real-Life ‘Dream Collaboration&#39;](https://otakupal.com/shin-japan-heroes-amusement-world-brings-together-evangelion-godzilla-ultraman-kamen-rider-for-real-life-dream-collaboration/)
+- [Japan Box Office: Shin Ultraman Beats Conan, Making Impressive No.1 Debut](https://otakupal.com/japan-box-office-shin-ultraman-beats-conan-making-impressive-no-1-debut/)
 - [Nyarko Voice Actor Kana Asumi Announces the Safe Birth of Her Child](https://otakupal.com/nyarko-voice-actor-kana-asumi-announces-the-safe-birth-of-her-child/)
 - [Listen to Riria.&#39;s Clear and Transparent Singing Voice in Bubble Ending Theme Music Video](https://otakupal.com/listen-to-riria-s-clear-and-transparent-singing-voice-in-bubble-ending-theme-music-video/)
-- [To Sleep So As to Dream](https://otakupal.com/to-sleep-so-as-to-dream/)
-- [Atsushi Ohkubo&#39;s Fire Force Manga Finally Prints 20 Million Copies Worldwide](https://otakupal.com/atsushi-ohkubos-fire-force-manga-finally-prints-20-million-copies-worldwide/)
-- [Asaka Posts Music Video for Laid-Back Camp: Movie Theme Song &quot;Sun Is Coming Up&quot;](https://otakupal.com/asaka-posts-music-video-for-laid-back-camp-movie-theme-song-sun-is-coming-up/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
