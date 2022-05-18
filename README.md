@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Fire Force New Mobile Game PV Reveals Theme Song by Mrs. GREEN APPLE](https://otakupal.com/fire-force-new-mobile-game-pv-reveals-theme-song-by-mrs-green-apple/)
 - [Only 50 Tourists Allowed in During Japan’s New Tourism Reopening Trial](https://otakupal.com/only-50-tourists-allowed-in-during-japans-new-tourism-reopening-trial/)
 - [Straw Hat&#39;s Thousand Sunny Ship Gets a New Look for ONE PIECE FILM RED](https://otakupal.com/straw-hats-thousand-sunny-ship-gets-a-new-look-for-one-piece-film-red/)
 - [Ya Boy Kongming! TV Anime Releases Full Version of &#39;Chikichiki Banban&#39; on May 20](https://otakupal.com/ya-boy-kongming-tv-anime-releases-full-version-of-chikichiki-banban-on-may-20/)
 - [Shiori Mikami Sings Opening Theme for TV Anime Harem in the Labyrinth of Another World](https://otakupal.com/shiori-mikami-sings-opening-theme-for-tv-anime-harem-in-the-labyrinth-of-another-world/)
-- [Ghost in the Shell SAC_2045&#39;s Tachikoma Gets in a Heated Battle in New Video From Season 2](https://otakupal.com/ghost-in-the-shell-sac_2045s-tachikoma-gets-in-a-heated-battle-in-new-video-from-season-2/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
