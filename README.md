@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Elaiza Ikeda to Star in Tatsunoko Production&#39;s 60th Anniversary Drama DORONJO](https://otakupal.com/elaiza-ikeda-to-star-in-tatsunoko-productions-60th-anniversary-drama-doronjo/)
 - [PROMARE Anime Film Heats Up in Japan Again with Revival Screenings](https://otakupal.com/promare-anime-film-heats-up-in-japan-again-with-revival-screenings/)
 - [Inu-Oh Anime Film Gets New Trailer Ahead Of Late May Japanese Theatrical Premiere](https://otakupal.com/inu-oh-anime-film-gets-new-trailer-ahead-of-late-may-japanese-theatrical-premiere/)
 - [Streetwear Brand BAIT Continues Reebok Collaboration For New Astro Boy Sneakers](https://otakupal.com/streetwear-brand-bait-continues-reebok-collaboration-for-new-astro-boy-sneakers/)
 - [Second HYPNOSISMIC Album Cover Reps All Six Divisions](https://otakupal.com/second-hypnosismic-album-cover-reps-all-six-divisions/)
-- [Supernatural TV Anime &#39;Malevolent Spirits: Mononogatari&#39; Releases 1st Teaser Trailer, Visual](https://otakupal.com/supernatural-tv-anime-malevolent-spirits-mononogatari-releases-1st-teaser-trailer-visual/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
