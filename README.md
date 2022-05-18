@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [EXCLUSIVE: Final Neon Genesis Evangelion-The Shinji Ikari Raising Project Omnibus Launches This December](https://otakupal.com/exclusive-final-neon-genesis-evangelion-the-shinji-ikari-raising-project-omnibus-launches-this-december/)
 - [KONOSUBA Explodes With New Information in Live Stream Quest on May 28](https://otakupal.com/konosuba-explodes-with-new-information-in-live-stream-quest-on-may-28/)
 - [DNF Duel Fighting Game Dives into Story Mode in Latest Trailer](https://otakupal.com/dnf-duel-fighting-game-dives-into-story-mode-in-latest-trailer/)
 - [Meet the Adorable Chisato Nishikigi in 1st Character Trailer for Lycoris Recoil TV Anime](https://otakupal.com/meet-the-adorable-chisato-nishikigi-in-1st-character-trailer-for-lycoris-recoil-tv-anime/)
 - [ORIENT&#39;s Uesugi Bushi Band Gets Trailer for Upcoming TV Anime&#39;s 2nd Part](https://otakupal.com/orients-uesugi-bushi-band-gets-trailer-for-upcoming-tv-animes-2nd-part/)
-- [Katarina Claes VA Maaya Uchida Returns to Work After Having COVID-19](https://otakupal.com/katarina-claes-va-maaya-uchida-returns-to-work-after-having-covid-19/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
