@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Shiori Mikami Sings Opening Theme for TV Anime Harem in the Labyrinth of Another World](https://otakupal.com/shiori-mikami-sings-opening-theme-for-tv-anime-harem-in-the-labyrinth-of-another-world/)
+- [Ghost in the Shell SAC_2045&#39;s Tachikoma Gets in a Heated Battle in New Video From Season 2](https://otakupal.com/ghost-in-the-shell-sac_2045s-tachikoma-gets-in-a-heated-battle-in-new-video-from-season-2/)
+- [The Quintessential Quintuplets Voice Actresses Featured on Weekly Shonen Magazine Cover](https://otakupal.com/the-quintessential-quintuplets-voice-actresses-featured-on-weekly-shonen-magazine-cover/)
+- [Shinta Harekawa&#39;s BL Manga Senpai, Danjite Koidewa! Gets Live-action Drama Adaptation in June](https://otakupal.com/shinta-harekawas-bl-manga-senpai-danjite-koidewa-gets-live-action-drama-adaptation-in-june/)
 - [Elaiza Ikeda to Star in Tatsunoko Production&#39;s 60th Anniversary Drama DORONJO](https://otakupal.com/elaiza-ikeda-to-star-in-tatsunoko-productions-60th-anniversary-drama-doronjo/)
-- [PROMARE Anime Film Heats Up in Japan Again with Revival Screenings](https://otakupal.com/promare-anime-film-heats-up-in-japan-again-with-revival-screenings/)
-- [Inu-Oh Anime Film Gets New Trailer Ahead Of Late May Japanese Theatrical Premiere](https://otakupal.com/inu-oh-anime-film-gets-new-trailer-ahead-of-late-may-japanese-theatrical-premiere/)
-- [Streetwear Brand BAIT Continues Reebok Collaboration For New Astro Boy Sneakers](https://otakupal.com/streetwear-brand-bait-continues-reebok-collaboration-for-new-astro-boy-sneakers/)
-- [Second HYPNOSISMIC Album Cover Reps All Six Divisions](https://otakupal.com/second-hypnosismic-album-cover-reps-all-six-divisions/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
