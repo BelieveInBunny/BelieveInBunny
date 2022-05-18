@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [2022 Eisner Awards Nominations Feature Multiple Hit Titles From Viz Media And Seven Seas Entertainment](https://otakupal.com/2022-eisner-awards-nominations-feature-multiple-hit-titles-from-viz-media-and-seven-seas-entertainment/)
 - [Hunter x Hunter Joins Puzzle &amp; Dragons Mobile Game for Action-Packed Collab](https://otakupal.com/hunter-x-hunter-joins-puzzle-dragons-mobile-game-for-action-packed-collab/)
 - [Sponsored Post: The Stylish Urban Mythological RPG Dislyte Is Now Available on iOS and Android From Lilith Games](https://otakupal.com/sponsored-post-the-stylish-urban-mythological-rpg-dislyte-is-now-available-on-ios-and-android-from-lilith-games/)
 - [The Legend of Heroes: Trails from Zero Shows Off Characters in New Trailer](https://otakupal.com/the-legend-of-heroes-trails-from-zero-shows-off-characters-in-new-trailer/)
 - [Attack on Titan, Resident Evil Join Dead by Daylight as Next Crossovers](https://otakupal.com/attack-on-titan-resident-evil-join-dead-by-daylight-as-next-crossovers/)
-- [Final Fantasy VII 25th Anniversary News Teased for Next Month](https://otakupal.com/final-fantasy-vii-25th-anniversary-news-teased-for-next-month/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
