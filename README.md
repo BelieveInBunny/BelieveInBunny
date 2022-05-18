@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [FEATURE: Anime &amp; Dating — Learn Your Love Language With These 4 Anime Romances](https://otakupal.com/feature-anime-dating-learn-your-love-language-with-these-4-anime-romances/)
+- [Adult Swim Announces Rick And Morty Anime Spin-Off Series, New Anime From Jujutsu Kaisen 0 Director](https://otakupal.com/adult-swim-announces-rick-and-morty-anime-spin-off-series-new-anime-from-jujutsu-kaisen-0-director/)
 - [Twin Multiverse Anime Films Drop First Visual!](https://otakupal.com/twin-multiverse-anime-films-drop-first-visual/)
 - [Pokémon: Hisuian Snow Web Anime Releases Its 1st Frosty Episode](https://otakupal.com/pokemon-hisuian-snow-web-anime-releases-its-1st-frosty-episode/)
 - [Rick And Morty Is Getting Anime Adaptation By Same Stuido As Tower of God](https://otakupal.com/rick-and-morty-is-getting-anime-adaptation-by-same-stuido-as-tower-of-god/)
-- [The Caligula Effect 2 Heads to PC on June 23](https://otakupal.com/the-caligula-effect-2-heads-to-pc-on-june-23/)
-- [EXCLUSIVE: Final Neon Genesis Evangelion-The Shinji Ikari Raising Project Omnibus Launches This December](https://otakupal.com/exclusive-final-neon-genesis-evangelion-the-shinji-ikari-raising-project-omnibus-launches-this-december/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
