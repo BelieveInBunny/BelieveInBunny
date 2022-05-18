@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [DNF Duel Fighting Game Dives into Story Mode in Latest Trailer](https://otakupal.com/dnf-duel-fighting-game-dives-into-story-mode-in-latest-trailer/)
+- [Meet the Adorable Chisato Nishikigi in 1st Character Trailer for Lycoris Recoil TV Anime](https://otakupal.com/meet-the-adorable-chisato-nishikigi-in-1st-character-trailer-for-lycoris-recoil-tv-anime/)
 - [ORIENT&#39;s Uesugi Bushi Band Gets Trailer for Upcoming TV Anime&#39;s 2nd Part](https://otakupal.com/orients-uesugi-bushi-band-gets-trailer-for-upcoming-tv-animes-2nd-part/)
 - [Katarina Claes VA Maaya Uchida Returns to Work After Having COVID-19](https://otakupal.com/katarina-claes-va-maaya-uchida-returns-to-work-after-having-covid-19/)
 - [Fire Force New Mobile Game PV Reveals Theme Song by Mrs. GREEN APPLE](https://otakupal.com/fire-force-new-mobile-game-pv-reveals-theme-song-by-mrs-green-apple/)
-- [Only 50 Tourists Allowed in During Japan’s New Tourism Reopening Trial](https://otakupal.com/only-50-tourists-allowed-in-during-japans-new-tourism-reopening-trial/)
-- [Straw Hat&#39;s Thousand Sunny Ship Gets a New Look for ONE PIECE FILM RED](https://otakupal.com/straw-hats-thousand-sunny-ship-gets-a-new-look-for-one-piece-film-red/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
