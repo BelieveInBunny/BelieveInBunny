@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [The Quintessential Quintuplets Put On Their Wedding Gowns for New Anime Movie Visual](https://otakupal.com/the-quintessential-quintuplets-put-on-their-wedding-gowns-for-new-anime-movie-visual/)
+- [Crunchyroll Expo 2022 Welcomes Back Vampy Bit Me and Other Fan-Favorite Guests](https://otakupal.com/crunchyroll-expo-2022-welcomes-back-vampy-bit-me-and-other-fan-favorite-guests/)
+- [Fairy Fencer F: Refrain Chord is Coming to PlayStation and Nintendo Switch](https://otakupal.com/fairy-fencer-f-refrain-chord-is-coming-to-playstation-and-nintendo-switch/)
 - [Yuga Aoyama Fires His Navel Laser as My Hero One&#39;s Justice 2 DLC](https://otakupal.com/yuga-aoyama-fires-his-navel-laser-as-my-hero-ones-justice-2-dlc/)
 - [FEATURE: How Hideaki Anno’s Otaku Passion For Tokusatsu Led Him To Shin Ultraman](https://otakupal.com/feature-how-hideaki-annos-otaku-passion-for-tokusatsu-led-him-to-shin-ultraman/)
-- [REVIEW: Shin Ultraman’s Fanatic and Hope-Filled Entry in the “Shin” Universe](https://otakupal.com/review-shin-ultramans-fanatic-and-hope-filled-entry-in-the-shin-universe/)
-- [GKIDS to Release Goodbye, Don Glees! Anime Film in North America](https://otakupal.com/gkids-to-release-goodbye-don-glees-anime-film-in-north-america/)
-- [Gundam Game Fest Livestream to Deliver News and Reveals on May 26](https://otakupal.com/gundam-game-fest-livestream-to-deliver-news-and-reveals-on-may-26/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
