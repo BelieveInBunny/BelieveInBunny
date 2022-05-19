@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [BASTARD!! Art Exhibition Hits Tokyo in July of 2022](https://otakupal.com/bastard-art-exhibition-hits-tokyo-in-july-of-2022/)
 - [STORM COLLECTIBLES Reveals Baki Hanma Action Figure](https://otakupal.com/storm-collectibles-reveals-baki-hanma-action-figure/)
 - [Phantom of the Idol TV Anime Gets &quot;Unmotivated&quot; New Key Visual](https://otakupal.com/phantom-of-the-idol-tv-anime-gets-unmotivated-new-key-visual/)
 - [Date A Live IV Reveals Voice Actor for DEM&#39;s Newest Fighter Nibelcole](https://otakupal.com/date-a-live-iv-reveals-voice-actor-for-dems-newest-fighter-nibelcole/)
 - [New Urusei Yatsura TV Anime Delivers Up Fresh Trailer Revealing October 2022 Start](https://otakupal.com/new-urusei-yatsura-tv-anime-delivers-up-fresh-trailer-revealing-october-2022-start/)
-- [Crunchyroll to Release Makoto Shinkai&#39;s Suzume no Tojimari in Theaters Early 2023](https://otakupal.com/crunchyroll-to-release-makoto-shinkais-suzume-no-tojimari-in-theaters-early-2023/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
