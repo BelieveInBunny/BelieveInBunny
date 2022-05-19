@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [REVIEW: Shin Ultraman’s Fanatic and Hope-Filled Entry in the “Shin” Universe](https://otakupal.com/review-shin-ultramans-fanatic-and-hope-filled-entry-in-the-shin-universe/)
+- [GKIDS to Release Goodbye, Don Glees! Anime Film in North America](https://otakupal.com/gkids-to-release-goodbye-don-glees-anime-film-in-north-america/)
 - [Gundam Game Fest Livestream to Deliver News and Reveals on May 26](https://otakupal.com/gundam-game-fest-livestream-to-deliver-news-and-reveals-on-may-26/)
 - [BASTARD!! Art Exhibition Hits Tokyo in July of 2022](https://otakupal.com/bastard-art-exhibition-hits-tokyo-in-july-of-2022/)
 - [STORM COLLECTIBLES Reveals Baki Hanma Action Figure](https://otakupal.com/storm-collectibles-reveals-baki-hanma-action-figure/)
-- [Phantom of the Idol TV Anime Gets &quot;Unmotivated&quot; New Key Visual](https://otakupal.com/phantom-of-the-idol-tv-anime-gets-unmotivated-new-key-visual/)
-- [Date A Live IV Reveals Voice Actor for DEM&#39;s Newest Fighter Nibelcole](https://otakupal.com/date-a-live-iv-reveals-voice-actor-for-dems-newest-fighter-nibelcole/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
