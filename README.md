@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Final Batch of Shaman King Reboot Episodes Hits Netflix on May 26](https://otakupal.com/final-batch-of-shaman-king-reboot-episodes-hits-netflix-on-may-26/)
 - [The Quintessential Quintuplets Put On Their Wedding Gowns for New Anime Movie Visual](https://otakupal.com/the-quintessential-quintuplets-put-on-their-wedding-gowns-for-new-anime-movie-visual/)
 - [Crunchyroll Expo 2022 Welcomes Back Vampy Bit Me and Other Fan-Favorite Guests](https://otakupal.com/crunchyroll-expo-2022-welcomes-back-vampy-bit-me-and-other-fan-favorite-guests/)
 - [Fairy Fencer F: Refrain Chord is Coming to PlayStation and Nintendo Switch](https://otakupal.com/fairy-fencer-f-refrain-chord-is-coming-to-playstation-and-nintendo-switch/)
 - [Yuga Aoyama Fires His Navel Laser as My Hero One&#39;s Justice 2 DLC](https://otakupal.com/yuga-aoyama-fires-his-navel-laser-as-my-hero-ones-justice-2-dlc/)
-- [FEATURE: How Hideaki Anno’s Otaku Passion For Tokusatsu Led Him To Shin Ultraman](https://otakupal.com/feature-how-hideaki-annos-otaku-passion-for-tokusatsu-led-him-to-shin-ultraman/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
