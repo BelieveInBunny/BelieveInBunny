@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [STORM COLLECTIBLES Reveals Baki Hanma Action Figure](https://otakupal.com/storm-collectibles-reveals-baki-hanma-action-figure/)
+- [Phantom of the Idol TV Anime Gets &quot;Unmotivated&quot; New Key Visual](https://otakupal.com/phantom-of-the-idol-tv-anime-gets-unmotivated-new-key-visual/)
+- [Date A Live IV Reveals Voice Actor for DEM&#39;s Newest Fighter Nibelcole](https://otakupal.com/date-a-live-iv-reveals-voice-actor-for-dems-newest-fighter-nibelcole/)
 - [New Urusei Yatsura TV Anime Delivers Up Fresh Trailer Revealing October 2022 Start](https://otakupal.com/new-urusei-yatsura-tv-anime-delivers-up-fresh-trailer-revealing-october-2022-start/)
 - [Crunchyroll to Release Makoto Shinkai&#39;s Suzume no Tojimari in Theaters Early 2023](https://otakupal.com/crunchyroll-to-release-makoto-shinkais-suzume-no-tojimari-in-theaters-early-2023/)
-- [Toshiki Tateishi Sings Soulful Ballad Song &quot;Mata Au Himade&quot; for CrosSing Project](https://otakupal.com/toshiki-tateishi-sings-soulful-ballad-song-mata-au-himade-for-crossing-project/)
-- [Showcase Your Elegance With These Newly Revealed SPY x FAMILY Uniqlo T-Shirts](https://otakupal.com/showcase-your-elegance-with-these-newly-revealed-spy-x-family-uniqlo-t-shirts/)
-- [Cast Visuals of Kimblee, Miles &amp; Yuriy for New Fullmetal Alchemist Live-action Films Revealed](https://otakupal.com/cast-visuals-of-kimblee-miles-yuriy-for-new-fullmetal-alchemist-live-action-films-revealed/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
