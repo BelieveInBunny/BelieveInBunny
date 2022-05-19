@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Yuga Aoyama Fires His Navel Laser as My Hero One&#39;s Justice 2 DLC](https://otakupal.com/yuga-aoyama-fires-his-navel-laser-as-my-hero-ones-justice-2-dlc/)
+- [FEATURE: How Hideaki Anno’s Otaku Passion For Tokusatsu Led Him To Shin Ultraman](https://otakupal.com/feature-how-hideaki-annos-otaku-passion-for-tokusatsu-led-him-to-shin-ultraman/)
 - [REVIEW: Shin Ultraman’s Fanatic and Hope-Filled Entry in the “Shin” Universe](https://otakupal.com/review-shin-ultramans-fanatic-and-hope-filled-entry-in-the-shin-universe/)
 - [GKIDS to Release Goodbye, Don Glees! Anime Film in North America](https://otakupal.com/gkids-to-release-goodbye-don-glees-anime-film-in-north-america/)
 - [Gundam Game Fest Livestream to Deliver News and Reveals on May 26](https://otakupal.com/gundam-game-fest-livestream-to-deliver-news-and-reveals-on-may-26/)
-- [BASTARD!! Art Exhibition Hits Tokyo in July of 2022](https://otakupal.com/bastard-art-exhibition-hits-tokyo-in-july-of-2022/)
-- [STORM COLLECTIBLES Reveals Baki Hanma Action Figure](https://otakupal.com/storm-collectibles-reveals-baki-hanma-action-figure/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
