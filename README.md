@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Toshiki Tateishi Sings Soulful Ballad Song &quot;Mata Au Himade&quot; for CrosSing Project](https://otakupal.com/toshiki-tateishi-sings-soulful-ballad-song-mata-au-himade-for-crossing-project/)
 - [Showcase Your Elegance With These Newly Revealed SPY x FAMILY Uniqlo T-Shirts](https://otakupal.com/showcase-your-elegance-with-these-newly-revealed-spy-x-family-uniqlo-t-shirts/)
 - [Cast Visuals of Kimblee, Miles &amp; Yuriy for New Fullmetal Alchemist Live-action Films Revealed](https://otakupal.com/cast-visuals-of-kimblee-miles-yuriy-for-new-fullmetal-alchemist-live-action-films-revealed/)
 - [Pokémon HOME Finishes Update Letting You Bring Your &#39;Mons to New Regions](https://otakupal.com/pokemon-home-finishes-update-letting-you-bring-your-mons-to-new-regions/)
 - [Cucuruz Doan&#39;s Island Director Yoshikazu Yasuhiko: &quot;I Have No Regrets about First Gundam&quot;](https://otakupal.com/cucuruz-doans-island-director-yoshikazu-yasuhiko-i-have-no-regrets-about-first-gundam/)
-- [LiSA&#39;s Demon Slayer TV Anime Opening Theme Wins JASRAC Gold Award for 2 Consecutive Years](https://otakupal.com/lisas-demon-slayer-tv-anime-opening-theme-wins-jasrac-gold-award-for-2-consecutive-years/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
