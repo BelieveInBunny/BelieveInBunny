@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Experience Everyday Life with Itsuki in The Quintessential Quintuplets&#39; 1st VR Game](https://otakupal.com/experience-everyday-life-with-itsuki-in-the-quintessential-quintuplets-1st-vr-game/)
 - [Hyperdimension Neptunia 3rd OVA &quot;Hidamari no Little Purple&quot; to be Released in April 2023](https://otakupal.com/hyperdimension-neptunia-3rd-ova-hidamari-no-little-purple-to-be-released-in-april-2023/)
 - [The Wings of Honnêamise Film 4K Remaster Edition Gets Theatrical Screening on October 28](https://otakupal.com/the-wings-of-honneamise-film-4k-remaster-edition-gets-theatrical-screening-on-october-28/)
 - [Watch Johnny &amp; Associates Boy Idol Group Sexy Zone&#39;s 80s Anime-inspired New MV &quot;THE FINEST&quot;](https://otakupal.com/watch-johnny-associates-boy-idol-group-sexy-zones-80s-anime-inspired-new-mv-the-finest/)
 - [Emma: A Victorian Romance](https://otakupal.com/emma-a-victorian-romance/)
-- [David Production&#39;s Spriggan Anime Takes Aim in Latest Key Visual](https://otakupal.com/david-productions-spriggan-anime-takes-aim-in-latest-key-visual/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
