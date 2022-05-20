@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [SaGa RPG Series Has Special Broadcast on the Way Later This Month](https://otakupal.com/saga-rpg-series-has-special-broadcast-on-the-way-later-this-month/)
 - [The Greatest Demon Lord Is Reborn as a Typical Nobody Stares Down Next Arc with New Visual](https://otakupal.com/the-greatest-demon-lord-is-reborn-as-a-typical-nobody-stares-down-next-arc-with-new-visual/)
 - [Dragon Ball Super: SUPER HERO&#39;s Japanese Release Battles Its Way Onto IMAX, 4DX](https://otakupal.com/dragon-ball-super-super-heros-japanese-release-battles-its-way-onto-imax-4dx/)
 - [Experience Everyday Life with Itsuki in The Quintessential Quintuplets&#39; 1st VR Game](https://otakupal.com/experience-everyday-life-with-itsuki-in-the-quintessential-quintuplets-1st-vr-game/)
 - [Hyperdimension Neptunia 3rd OVA &quot;Hidamari no Little Purple&quot; to be Released in April 2023](https://otakupal.com/hyperdimension-neptunia-3rd-ova-hidamari-no-little-purple-to-be-released-in-april-2023/)
-- [The Wings of Honnêamise Film 4K Remaster Edition Gets Theatrical Screening on October 28](https://otakupal.com/the-wings-of-honneamise-film-4k-remaster-edition-gets-theatrical-screening-on-october-28/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
