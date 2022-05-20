@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [The Wings of Honnêamise Film 4K Remaster Edition Gets Theatrical Screening on October 28](https://otakupal.com/the-wings-of-honneamise-film-4k-remaster-edition-gets-theatrical-screening-on-october-28/)
 - [Watch Johnny &amp; Associates Boy Idol Group Sexy Zone&#39;s 80s Anime-inspired New MV &quot;THE FINEST&quot;](https://otakupal.com/watch-johnny-associates-boy-idol-group-sexy-zones-80s-anime-inspired-new-mv-the-finest/)
 - [Emma: A Victorian Romance](https://otakupal.com/emma-a-victorian-romance/)
 - [David Production&#39;s Spriggan Anime Takes Aim in Latest Key Visual](https://otakupal.com/david-productions-spriggan-anime-takes-aim-in-latest-key-visual/)
 - [Anisong Singer LiSA Reaches One Billion Streams of Her Songs on Spotify](https://otakupal.com/anisong-singer-lisa-reaches-one-billion-streams-of-her-songs-on-spotify/)
-- [Is It Wrong to Try to Pick Up Girls in a Dungeon? to Reveal New Information on May 22 Live-Stream](https://otakupal.com/is-it-wrong-to-try-to-pick-up-girls-in-a-dungeon-to-reveal-new-information-on-may-22-live-stream/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
