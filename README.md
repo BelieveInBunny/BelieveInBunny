@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [QUIZ: Which Of These 6 Types Of Characters Would You Be In SPY x FAMILY?](https://otakupal.com/quiz-which-of-these-6-types-of-characters-would-you-be-in-spy-x-family/)
+- [Attack on Titan Hits a Home Run in Softbank Hawks Baseball Collab](https://otakupal.com/attack-on-titan-hits-a-home-run-in-softbank-hawks-baseball-collab/)
 - [Panda! Go Panda! Celebrates 50th Anniversary with New Key Visual](https://otakupal.com/panda-go-panda-celebrates-50th-anniversary-with-new-key-visual/)
 - [SaGa RPG Series Has Special Broadcast on the Way Later This Month](https://otakupal.com/saga-rpg-series-has-special-broadcast-on-the-way-later-this-month/)
 - [The Greatest Demon Lord Is Reborn as a Typical Nobody Stares Down Next Arc with New Visual](https://otakupal.com/the-greatest-demon-lord-is-reborn-as-a-typical-nobody-stares-down-next-arc-with-new-visual/)
-- [Dragon Ball Super: SUPER HERO&#39;s Japanese Release Battles Its Way Onto IMAX, 4DX](https://otakupal.com/dragon-ball-super-super-heros-japanese-release-battles-its-way-onto-imax-4dx/)
-- [Experience Everyday Life with Itsuki in The Quintessential Quintuplets&#39; 1st VR Game](https://otakupal.com/experience-everyday-life-with-itsuki-in-the-quintessential-quintuplets-1st-vr-game/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
