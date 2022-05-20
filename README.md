@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Hololive VTuber Lamy&#39;s Sake Wins Bronze at Prestigious International Wine Competition](https://otakupal.com/hololive-vtuber-lamys-sake-wins-bronze-at-prestigious-international-wine-competition/)
 - [QUIZ: Which Of These 6 Types Of Characters Would You Be In SPY x FAMILY?](https://otakupal.com/quiz-which-of-these-6-types-of-characters-would-you-be-in-spy-x-family/)
 - [Attack on Titan Hits a Home Run in Softbank Hawks Baseball Collab](https://otakupal.com/attack-on-titan-hits-a-home-run-in-softbank-hawks-baseball-collab/)
 - [Panda! Go Panda! Celebrates 50th Anniversary with New Key Visual](https://otakupal.com/panda-go-panda-celebrates-50th-anniversary-with-new-key-visual/)
 - [SaGa RPG Series Has Special Broadcast on the Way Later This Month](https://otakupal.com/saga-rpg-series-has-special-broadcast-on-the-way-later-this-month/)
-- [The Greatest Demon Lord Is Reborn as a Typical Nobody Stares Down Next Arc with New Visual](https://otakupal.com/the-greatest-demon-lord-is-reborn-as-a-typical-nobody-stares-down-next-arc-with-new-visual/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
