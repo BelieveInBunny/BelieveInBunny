@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Is It Wrong to Try to Pick Up Girls in a Dungeon? to Reveal New Information on May 22 Live-Stream](https://otakupal.com/is-it-wrong-to-try-to-pick-up-girls-in-a-dungeon-to-reveal-new-information-on-may-22-live-stream/)
+- [Gen Hoshino&#39;s SPY x FAMILY Ending Theme MV Reaches 5 Million Views Only in 2 Weeks](https://otakupal.com/gen-hoshinos-spy-x-family-ending-theme-mv-reaches-5-million-views-only-in-2-weeks/)
 - [SPY x FAMILY Reveals English Dub Cast for Damian Desmond and More Eden College Students](https://otakupal.com/spy-x-family-reveals-english-dub-cast-for-damian-desmond-and-more-eden-college-students/)
 - [Anonymous;Code Shows Off Opening Movie Ahead of Launch](https://otakupal.com/anonymouscode-shows-off-opening-movie-ahead-of-launch/)
 - [Final Batch of Shaman King Reboot Episodes Hits Netflix on May 26](https://otakupal.com/final-batch-of-shaman-king-reboot-episodes-hits-netflix-on-may-26/)
-- [The Quintessential Quintuplets Put On Their Wedding Gowns for New Anime Movie Visual](https://otakupal.com/the-quintessential-quintuplets-put-on-their-wedding-gowns-for-new-anime-movie-visual/)
-- [Crunchyroll Expo 2022 Welcomes Back Vampy Bit Me and Other Fan-Favorite Guests](https://otakupal.com/crunchyroll-expo-2022-welcomes-back-vampy-bit-me-and-other-fan-favorite-guests/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
