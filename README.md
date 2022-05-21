@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Detective Conan: The Bride of Halloween Film Releases Special Clip Featuring Theme Song by BUMP OF CHICKEN](https://otakupal.com/detective-conan-the-bride-of-halloween-film-releases-special-clip-featuring-theme-song-by-bump-of-chicken/)
+- [The Lucifer and Biscuit Hammer Anime Unveils Long-Awaited 1st Trailer, Premiere Date](https://otakupal.com/the-lucifer-and-biscuit-hammer-anime-unveils-long-awaited-1st-trailer-premiere-date/)
+- [Yowamushi Pedal Stage Play Looks Back on 10 Years in Anniversary Video](https://otakupal.com/yowamushi-pedal-stage-play-looks-back-on-10-years-in-anniversary-video/)
+- [Live-action Drama Adaptation of BL Comedy Manga Fudanshi Bartender no Tashinami to be Aired in Japan](https://otakupal.com/live-action-drama-adaptation-of-bl-comedy-manga-fudanshi-bartender-no-tashinami-to-be-aired-in-japan/)
 - [Nakano Sisters Share Their True Feelings in The Quintessential Quintuplets the Movie Theme Song MV](https://otakupal.com/nakano-sisters-share-their-true-feelings-in-the-quintessential-quintuplets-the-movie-theme-song-mv/)
-- [Fathom Events Announces Two Macross Film Screening Events For June](https://otakupal.com/fathom-events-announces-two-macross-film-screening-events-for-june/)
-- [Crunchyroll Celebrates Amazing Spring 2022 Anime Season with Billboards Around the World](https://otakupal.com/crunchyroll-celebrates-amazing-spring-2022-anime-season-with-billboards-around-the-world/)
-- [Hololive VTuber Lamy&#39;s Sake Wins Bronze at Prestigious International Wine Competition](https://otakupal.com/hololive-vtuber-lamys-sake-wins-bronze-at-prestigious-international-wine-competition/)
-- [QUIZ: Which Of These 6 Types Of Characters Would You Be In SPY x FAMILY?](https://otakupal.com/quiz-which-of-these-6-types-of-characters-would-you-be-in-spy-x-family/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
