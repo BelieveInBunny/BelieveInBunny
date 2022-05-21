@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [JAM Project to Release Their 14th Best Album &quot;BEST COLLECTION ⅩⅣ Max the Max&quot; on July 27](https://otakupal.com/jam-project-to-release-their-14th-best-album-best-collection-%e2%85%b9%e2%85%b3-max-the-max-on-july-27/)
+- [Shin Ultraman Has Already Sold 1 MIllion Tickets Ahead of 2nd Weekend](https://otakupal.com/shin-ultraman-has-already-sold-1-million-tickets-ahead-of-2nd-weekend/)
 - [Detective Conan: The Bride of Halloween Film Releases Special Clip Featuring Theme Song by BUMP OF CHICKEN](https://otakupal.com/detective-conan-the-bride-of-halloween-film-releases-special-clip-featuring-theme-song-by-bump-of-chicken/)
 - [The Lucifer and Biscuit Hammer Anime Unveils Long-Awaited 1st Trailer, Premiere Date](https://otakupal.com/the-lucifer-and-biscuit-hammer-anime-unveils-long-awaited-1st-trailer-premiere-date/)
 - [Yowamushi Pedal Stage Play Looks Back on 10 Years in Anniversary Video](https://otakupal.com/yowamushi-pedal-stage-play-looks-back-on-10-years-in-anniversary-video/)
-- [Live-action Drama Adaptation of BL Comedy Manga Fudanshi Bartender no Tashinami to be Aired in Japan](https://otakupal.com/live-action-drama-adaptation-of-bl-comedy-manga-fudanshi-bartender-no-tashinami-to-be-aired-in-japan/)
-- [Nakano Sisters Share Their True Feelings in The Quintessential Quintuplets the Movie Theme Song MV](https://otakupal.com/nakano-sisters-share-their-true-feelings-in-the-quintessential-quintuplets-the-movie-theme-song-mv/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
