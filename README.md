@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Ruka Shows Her Cute Side in New Rent-a-Girlfriend Season 2 Character Trailer](https://otakupal.com/ruka-shows-her-cute-side-in-new-rent-a-girlfriend-season-2-character-trailer/)
+- [WIT Studio Looks Back at the Last Decade in Special Exhibition Video](https://otakupal.com/wit-studio-looks-back-at-the-last-decade-in-special-exhibition-video/)
 - [Pizza Hut and the Nakano Sisters Bring the Snacks in The Quintessential Quintuplets Movie Collab](https://otakupal.com/pizza-hut-and-the-nakano-sisters-bring-the-snacks-in-the-quintessential-quintuplets-movie-collab/)
 - [Laid-Back Camp Anime Straps in for 3rd Fuji Speedway Collaboration](https://otakupal.com/laid-back-camp-anime-straps-in-for-3rd-fuji-speedway-collaboration/)
 - [JAM Project to Release Their 14th Best Album &quot;BEST COLLECTION ⅩⅣ Max the Max&quot; on July 27](https://otakupal.com/jam-project-to-release-their-14th-best-album-best-collection-%e2%85%b9%e2%85%b3-max-the-max-on-july-27/)
-- [Shin Ultraman Has Already Sold 1 MIllion Tickets Ahead of 2nd Weekend](https://otakupal.com/shin-ultraman-has-already-sold-1-million-tickets-ahead-of-2nd-weekend/)
-- [Detective Conan: The Bride of Halloween Film Releases Special Clip Featuring Theme Song by BUMP OF CHICKEN](https://otakupal.com/detective-conan-the-bride-of-halloween-film-releases-special-clip-featuring-theme-song-by-bump-of-chicken/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
