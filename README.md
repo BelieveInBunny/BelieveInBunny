@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Nakano Sisters Share Their True Feelings in The Quintessential Quintuplets the Movie Theme Song MV](https://otakupal.com/nakano-sisters-share-their-true-feelings-in-the-quintessential-quintuplets-the-movie-theme-song-mv/)
 - [Fathom Events Announces Two Macross Film Screening Events For June](https://otakupal.com/fathom-events-announces-two-macross-film-screening-events-for-june/)
 - [Crunchyroll Celebrates Amazing Spring 2022 Anime Season with Billboards Around the World](https://otakupal.com/crunchyroll-celebrates-amazing-spring-2022-anime-season-with-billboards-around-the-world/)
 - [Hololive VTuber Lamy&#39;s Sake Wins Bronze at Prestigious International Wine Competition](https://otakupal.com/hololive-vtuber-lamys-sake-wins-bronze-at-prestigious-international-wine-competition/)
 - [QUIZ: Which Of These 6 Types Of Characters Would You Be In SPY x FAMILY?](https://otakupal.com/quiz-which-of-these-6-types-of-characters-would-you-be-in-spy-x-family/)
-- [Attack on Titan Hits a Home Run in Softbank Hawks Baseball Collab](https://otakupal.com/attack-on-titan-hits-a-home-run-in-softbank-hawks-baseball-collab/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
