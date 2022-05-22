@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Itadori and Mahito Face Off in JUJUTSU KAISEN&#39;s Latest Rebroadcast Visual](https://otakupal.com/itadori-and-mahito-face-off-in-jujutsu-kaisens-latest-rebroadcast-visual/)
 - [A Couple of Cuckoos TV Anime Casts Inosuke VA Yoshitsugu Matsuoka as Shion Asuma](https://otakupal.com/a-couple-of-cuckoos-tv-anime-casts-inosuke-va-yoshitsugu-matsuoka-as-shion-asuma/)
 - [VA Mikako Komatsu Joins the Cast of Badminton Anime Love All Play](https://otakupal.com/va-mikako-komatsu-joins-the-cast-of-badminton-anime-love-all-play/)
 - [Young Athlete Struggles in Extreme Hearts Character PV](https://otakupal.com/young-athlete-struggles-in-extreme-hearts-character-pv/)
 - [FEATURE: Everything Everywhere All at Once&#39;s Connection To Mind Game](https://otakupal.com/feature-everything-everywhere-all-at-onces-connection-to-mind-game/)
-- [Ruka Shows Her Cute Side in New Rent-a-Girlfriend Season 2 Character Trailer](https://otakupal.com/ruka-shows-her-cute-side-in-new-rent-a-girlfriend-season-2-character-trailer/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
