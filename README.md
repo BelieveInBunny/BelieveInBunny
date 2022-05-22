@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Experience Toman-Style Hospitality at the Tokyo Revengers x Prince Hotel Collaboration](https://otakupal.com/experience-toman-style-hospitality-at-the-tokyo-revengers-x-prince-hotel-collaboration/)
 - [FEATURE: 6 Anime Perfect To Watch On World Goth Day](https://otakupal.com/feature-6-anime-perfect-to-watch-on-world-goth-day/)
 - [Is It Wrong to Try to Pick Up Girls in a Dungeon? IV Sets July 22 Premiere with Key Visual, Trailer](https://otakupal.com/is-it-wrong-to-try-to-pick-up-girls-in-a-dungeon-iv-sets-july-22-premiere-with-key-visual-trailer/)
 - [Ninjas Roam the City in 1st Visual and Trailer for Original Anime Shinobi no Ittoki](https://otakupal.com/ninjas-roam-the-city-in-1st-visual-and-trailer-for-original-anime-shinobi-no-ittoki/)
 - [Itadori and Mahito Face Off in JUJUTSU KAISEN&#39;s Latest Rebroadcast Visual](https://otakupal.com/itadori-and-mahito-face-off-in-jujutsu-kaisens-latest-rebroadcast-visual/)
-- [Spy x Family: Anya Is Invading Other Manga In Hilarious Crossovers](https://otakupal.com/spy-x-family-anya-is-invading-other-manga-in-hilarious-crossovers/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
