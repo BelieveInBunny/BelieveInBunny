@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. ❗️ Opened issue [#5](https://github.com/scriptzteam/xBiT-Torrents-Magnets-Indexer/issues/5) in [scriptzteam/xBiT-Torrents-Magnets-Indexer](https://github.com/scriptzteam/xBiT-Torrents-Magnets-Indexer)
-2. 🗣 Commented on [#47](https://github.com/torrust/torrust/issues/47) in [torrust/torrust](https://github.com/torrust/torrust)
-3. 💪 Opened PR [#3](https://github.com/BelieveInBunny/onedrive-index/pull/3) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
-4. ❗️ Opened issue [#51](https://github.com/torrust/torrust/issues/51) in [torrust/torrust](https://github.com/torrust/torrust)
-5. ❗️ Opened issue [#50](https://github.com/torrust/torrust/issues/50) in [torrust/torrust](https://github.com/torrust/torrust)
+1. ❗️ Opened issue [#407](https://github.com/jikan-me/jikan/issues/407) in [jikan-me/jikan](https://github.com/jikan-me/jikan)
+2. ❗️ Opened issue [#5](https://github.com/scriptzteam/xBiT-Torrents-Magnets-Indexer/issues/5) in [scriptzteam/xBiT-Torrents-Magnets-Indexer](https://github.com/scriptzteam/xBiT-Torrents-Magnets-Indexer)
+3. 🗣 Commented on [#47](https://github.com/torrust/torrust/issues/47) in [torrust/torrust](https://github.com/torrust/torrust)
+4. 💪 Opened PR [#3](https://github.com/BelieveInBunny/onedrive-index/pull/3) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
+5. ❗️ Opened issue [#51](https://github.com/torrust/torrust/issues/51) in [torrust/torrust](https://github.com/torrust/torrust)
 <!--END_SECTION:activity-->
 
 </details>
