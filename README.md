@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [VA Mikako Komatsu Joins the Cast of Badminton Anime Love All Play](https://otakupal.com/va-mikako-komatsu-joins-the-cast-of-badminton-anime-love-all-play/)
 - [Young Athlete Struggles in Extreme Hearts Character PV](https://otakupal.com/young-athlete-struggles-in-extreme-hearts-character-pv/)
 - [FEATURE: Everything Everywhere All at Once&#39;s Connection To Mind Game](https://otakupal.com/feature-everything-everywhere-all-at-onces-connection-to-mind-game/)
 - [Ruka Shows Her Cute Side in New Rent-a-Girlfriend Season 2 Character Trailer](https://otakupal.com/ruka-shows-her-cute-side-in-new-rent-a-girlfriend-season-2-character-trailer/)
 - [WIT Studio Looks Back at the Last Decade in Special Exhibition Video](https://otakupal.com/wit-studio-looks-back-at-the-last-decade-in-special-exhibition-video/)
-- [Pizza Hut and the Nakano Sisters Bring the Snacks in The Quintessential Quintuplets Movie Collab](https://otakupal.com/pizza-hut-and-the-nakano-sisters-bring-the-snacks-in-the-quintessential-quintuplets-movie-collab/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
