@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Ninjas Roam the City in 1st Visual and Trailer for Original Anime Shinobi no Ittoki](https://otakupal.com/ninjas-roam-the-city-in-1st-visual-and-trailer-for-original-anime-shinobi-no-ittoki/)
 - [Itadori and Mahito Face Off in JUJUTSU KAISEN&#39;s Latest Rebroadcast Visual](https://otakupal.com/itadori-and-mahito-face-off-in-jujutsu-kaisens-latest-rebroadcast-visual/)
 - [A Couple of Cuckoos TV Anime Casts Inosuke VA Yoshitsugu Matsuoka as Shion Asuma](https://otakupal.com/a-couple-of-cuckoos-tv-anime-casts-inosuke-va-yoshitsugu-matsuoka-as-shion-asuma/)
 - [VA Mikako Komatsu Joins the Cast of Badminton Anime Love All Play](https://otakupal.com/va-mikako-komatsu-joins-the-cast-of-badminton-anime-love-all-play/)
 - [Young Athlete Struggles in Extreme Hearts Character PV](https://otakupal.com/young-athlete-struggles-in-extreme-hearts-character-pv/)
-- [FEATURE: Everything Everywhere All at Once&#39;s Connection To Mind Game](https://otakupal.com/feature-everything-everywhere-all-at-onces-connection-to-mind-game/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
