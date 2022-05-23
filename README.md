@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Order Your Own Apologetic Omelet Rice at Official SPY x FAMILY Café](https://otakupal.com/order-your-own-apologetic-omelet-rice-at-official-spy-x-family-cafe/)
 - [Kakeru Rocks Up to Classroom of the Elite Season 2 in Updated Visual](https://otakupal.com/kakeru-rocks-up-to-classroom-of-the-elite-season-2-in-updated-visual/)
 - [Slow Loop TV Anime Celebrates Special Live Event with New Key Visual](https://otakupal.com/slow-loop-tv-anime-celebrates-special-live-event-with-new-key-visual/)
 - [LIVE A LIVE Remake Introduces More Time Periods in Latest Previews](https://otakupal.com/live-a-live-remake-introduces-more-time-periods-in-latest-previews/)
 - [Kazuma Kiryu and Kaoru Head to Rainbow Six Siege in Yakuza Bundle](https://otakupal.com/kazuma-kiryu-and-kaoru-head-to-rainbow-six-siege-in-yakuza-bundle/)
-- [The Quintessential Quintuplets Movie Earns Over 390 Million Yen in 1st Three Days in JP Theaters](https://otakupal.com/the-quintessential-quintuplets-movie-earns-over-390-million-yen-in-1st-three-days-in-jp-theaters/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
