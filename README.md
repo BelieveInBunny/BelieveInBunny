@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [FEATURE: Celebrating Shinichiro Watanabe&#39;s Catalog From Cowboy Bebop And Beyond](https://otakupal.com/feature-celebrating-shinichiro-watanabes-catalog-from-cowboy-bebop-and-beyond/)
+- [QUIZ: Plan Your Perfect Date To Find Your Next Rom-Com Anime](https://otakupal.com/quiz-plan-your-perfect-date-to-find-your-next-rom-com-anime/)
 - [Order Your Own Apologetic Omelet Rice at Official SPY x FAMILY Café](https://otakupal.com/order-your-own-apologetic-omelet-rice-at-official-spy-x-family-cafe/)
 - [Kakeru Rocks Up to Classroom of the Elite Season 2 in Updated Visual](https://otakupal.com/kakeru-rocks-up-to-classroom-of-the-elite-season-2-in-updated-visual/)
 - [Slow Loop TV Anime Celebrates Special Live Event with New Key Visual](https://otakupal.com/slow-loop-tv-anime-celebrates-special-live-event-with-new-key-visual/)
-- [LIVE A LIVE Remake Introduces More Time Periods in Latest Previews](https://otakupal.com/live-a-live-remake-introduces-more-time-periods-in-latest-previews/)
-- [Kazuma Kiryu and Kaoru Head to Rainbow Six Siege in Yakuza Bundle](https://otakupal.com/kazuma-kiryu-and-kaoru-head-to-rainbow-six-siege-in-yakuza-bundle/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
