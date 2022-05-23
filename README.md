@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [The Quintessential Quintuplets Movie Earns Over 390 Million Yen in 1st Three Days in JP Theaters](https://otakupal.com/the-quintessential-quintuplets-movie-earns-over-390-million-yen-in-1st-three-days-in-jp-theaters/)
 - [Ghost in the Shell: SAC_2045 Season 2 Unveils Collection of Character Illustrations, Key Visual](https://otakupal.com/ghost-in-the-shell-sac_2045-season-2-unveils-collection-of-character-illustrations-key-visual/)
 - [LINE Monster Rancher Game Reveals Opening Movie](https://otakupal.com/line-monster-rancher-game-reveals-opening-movie/)
 - [Fire Force Celebrates Manga&#39;s End With 45.6 Meter Signage in the World&#39;s Busiest Train Station](https://otakupal.com/fire-force-celebrates-mangas-end-with-45-6-meter-signage-in-the-worlds-busiest-train-station/)
 - [Idol Group ≠ME &lpar;Not Equal Me&rpar; to Perform TV Anime The Maid I Hired Recently Is Mysterious Opening Theme](https://otakupal.com/idol-group-%e2%89%a0me-not-equal-me-to-perform-tv-anime-the-maid-i-hired-recently-is-mysterious-opening-theme/)
-- [Japanese Fans Rank the Top Anime Kisses for Japan’s Kiss Day](https://otakupal.com/japanese-fans-rank-the-top-anime-kisses-for-japans-kiss-day/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
