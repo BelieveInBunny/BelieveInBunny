@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [YouTube Singer Nasuo☆ Has A Fun Time in Shikimori&#39;s Not Just a Cutie Opening Theme MV](https://otakupal.com/youtube-singer-nasuo%e2%98%86-has-a-fun-time-in-shikimoris-not-just-a-cutie-opening-theme-mv/)
-- [Experience Toman-Style Hospitality at the Tokyo Revengers x Prince Hotel Collaboration](https://otakupal.com/experience-toman-style-hospitality-at-the-tokyo-revengers-x-prince-hotel-collaboration/)
-- [FEATURE: 6 Anime Perfect To Watch On World Goth Day](https://otakupal.com/feature-6-anime-perfect-to-watch-on-world-goth-day/)
-- [Is It Wrong to Try to Pick Up Girls in a Dungeon? IV Sets July 22 Premiere with Key Visual, Trailer](https://otakupal.com/is-it-wrong-to-try-to-pick-up-girls-in-a-dungeon-iv-sets-july-22-premiere-with-key-visual-trailer/)
-- [Ninjas Roam the City in 1st Visual and Trailer for Original Anime Shinobi no Ittoki](https://otakupal.com/ninjas-roam-the-city-in-1st-visual-and-trailer-for-original-anime-shinobi-no-ittoki/)
+- [Adopt Howl&#39;s Moving Castle Heen Straight from Studio Ghibli&#39;s Own Online Store](https://otakupal.com/adopt-howls-moving-castle-heen-straight-from-studio-ghiblis-own-online-store/)
+- [Watch Rehearsal Video for Love Live! Superstar!! VA Unit Liella!&#39;s MTV Unplugged Concert](https://otakupal.com/watch-rehearsal-video-for-love-live-superstar-va-unit-liellas-mtv-unplugged-concert/)
+- [The Quintessential Quintuplets Movie Reveals 2nd Week Gift for Theatergoers](https://otakupal.com/the-quintessential-quintuplets-movie-reveals-2nd-week-gift-for-theatergoers/)
+- [Deku, Bakugo and Other Class 1-A Get Updated Designs for My Hero Academia Season 6 TV Anime](https://otakupal.com/deku-bakugo-and-other-class-1-a-get-updated-designs-for-my-hero-academia-season-6-tv-anime/)
+- [National Museum of Nature and Science Plans Dr.STONE Collaboration Event This Summer](https://otakupal.com/national-museum-of-nature-and-science-plans-dr-stone-collaboration-event-this-summer/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
