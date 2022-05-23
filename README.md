@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Japanese Fans Rank the Top Anime Kisses for Japan’s Kiss Day](https://otakupal.com/japanese-fans-rank-the-top-anime-kisses-for-japans-kiss-day/)
 - [Adopt Howl&#39;s Moving Castle Heen Straight from Studio Ghibli&#39;s Own Online Store](https://otakupal.com/adopt-howls-moving-castle-heen-straight-from-studio-ghiblis-own-online-store/)
 - [Watch Rehearsal Video for Love Live! Superstar!! VA Unit Liella!&#39;s MTV Unplugged Concert](https://otakupal.com/watch-rehearsal-video-for-love-live-superstar-va-unit-liellas-mtv-unplugged-concert/)
 - [The Quintessential Quintuplets Movie Reveals 2nd Week Gift for Theatergoers](https://otakupal.com/the-quintessential-quintuplets-movie-reveals-2nd-week-gift-for-theatergoers/)
 - [Deku, Bakugo and Other Class 1-A Get Updated Designs for My Hero Academia Season 6 TV Anime](https://otakupal.com/deku-bakugo-and-other-class-1-a-get-updated-designs-for-my-hero-academia-season-6-tv-anime/)
-- [National Museum of Nature and Science Plans Dr.STONE Collaboration Event This Summer](https://otakupal.com/national-museum-of-nature-and-science-plans-dr-stone-collaboration-event-this-summer/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
