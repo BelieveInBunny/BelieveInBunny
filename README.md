@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [LINE Monster Rancher Game Reveals Opening Movie](https://otakupal.com/line-monster-rancher-game-reveals-opening-movie/)
 - [Fire Force Celebrates Manga&#39;s End With 45.6 Meter Signage in the World&#39;s Busiest Train Station](https://otakupal.com/fire-force-celebrates-mangas-end-with-45-6-meter-signage-in-the-worlds-busiest-train-station/)
 - [Idol Group ≠ME &lpar;Not Equal Me&rpar; to Perform TV Anime The Maid I Hired Recently Is Mysterious Opening Theme](https://otakupal.com/idol-group-%e2%89%a0me-not-equal-me-to-perform-tv-anime-the-maid-i-hired-recently-is-mysterious-opening-theme/)
 - [Japanese Fans Rank the Top Anime Kisses for Japan’s Kiss Day](https://otakupal.com/japanese-fans-rank-the-top-anime-kisses-for-japans-kiss-day/)
 - [Adopt Howl&#39;s Moving Castle Heen Straight from Studio Ghibli&#39;s Own Online Store](https://otakupal.com/adopt-howls-moving-castle-heen-straight-from-studio-ghiblis-own-online-store/)
-- [Watch Rehearsal Video for Love Live! Superstar!! VA Unit Liella!&#39;s MTV Unplugged Concert](https://otakupal.com/watch-rehearsal-video-for-love-live-superstar-va-unit-liellas-mtv-unplugged-concert/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
