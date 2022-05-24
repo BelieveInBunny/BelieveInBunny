@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Cavalry Battle Erupts in The Way of the Househusband Movie Clip](https://otakupal.com/cavalry-battle-erupts-in-the-way-of-the-househusband-movie-clip/)
+- [Asaka to Perform Summer Time Rendering&#39;s New TV Anime Opening Theme This July](https://otakupal.com/asaka-to-perform-summer-time-renderings-new-tv-anime-opening-theme-this-july/)
 - [Delinquent Beatdowns Go Turn-Based in Banchou Tactics Strategy-RPG](https://otakupal.com/delinquent-beatdowns-go-turn-based-in-banchou-tactics-strategy-rpg/)
 - [Dragon&#39;s Dogma 10th Anniversary Website Opens with Special Message](https://otakupal.com/dragons-dogma-10th-anniversary-website-opens-with-special-message/)
 - [Dress for a Day on the Green with Official BIRDIE WING -Golf Girls&#39; Story- Apparel Line](https://otakupal.com/dress-for-a-day-on-the-green-with-official-birdie-wing-golf-girls-story-apparel-line/)
-- [Kis-My-Ft2&#39;s Toshiya Miyata Joins Cast of Delicious Party Pretty Cure](https://otakupal.com/kis-my-ft2s-toshiya-miyata-joins-cast-of-delicious-party-pretty-cure/)
-- [Hanasaku Iroha-Inspired Festival Returns for 10th Anniversary After 2 Year Break](https://otakupal.com/hanasaku-iroha-inspired-festival-returns-for-10th-anniversary-after-2-year-break/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
