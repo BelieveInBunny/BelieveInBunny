@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Pokémon GO Teases Ultra Beasts with Cryptic Nihilego Video](https://otakupal.com/pokemon-go-teases-ultra-beasts-with-cryptic-nihilego-video/)
+- [Crunchyroll Games to Launch Bloodline: The Last Royal Vampire](https://otakupal.com/crunchyroll-games-to-launch-bloodline-the-last-royal-vampire/)
+- [Land of the Lustrous Manga to Resume Next Month After 1.5-Year Hiatus](https://otakupal.com/land-of-the-lustrous-manga-to-resume-next-month-after-1-5-year-hiatus/)
 - [PROMARE Fires Up 3rd Anniversary Celebrations with Stylish Illustration](https://otakupal.com/promare-fires-up-3rd-anniversary-celebrations-with-stylish-illustration/)
 - [Hunter x Hunter Is Coming Back, Confirmed By One Punch Man Creator](https://otakupal.com/hunter-x-hunter-is-coming-back-confirmed-by-one-punch-man-creator/)
-- [Which Girl Won In The Quentessential Quintuplets Movie Ending?](https://otakupal.com/which-girl-won-in-the-quentessential-quintuplets-movie-ending/)
-- [Chainsaw Man: Makima Gets A NSFW Figure](https://otakupal.com/chainsaw-man-makima-gets-a-nsfw-figure/)
-- [Explore the Cyberpunk World of Ghost in the Shell: SAC_2045 S2 in Creditless Opening Theme Video](https://otakupal.com/explore-the-cyberpunk-world-of-ghost-in-the-shell-sac_2045-s2-in-creditless-opening-theme-video/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
