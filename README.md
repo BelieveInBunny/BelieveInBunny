@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Hunter x Hunter Is Coming Back, Confirmed By One Punch Man Creator](https://otakupal.com/hunter-x-hunter-is-coming-back-confirmed-by-one-punch-man-creator/)
+- [Which Girl Won In The Quentessential Quintuplets Movie Ending?](https://otakupal.com/which-girl-won-in-the-quentessential-quintuplets-movie-ending/)
 - [Chainsaw Man: Makima Gets A NSFW Figure](https://otakupal.com/chainsaw-man-makima-gets-a-nsfw-figure/)
 - [Explore the Cyberpunk World of Ghost in the Shell: SAC_2045 S2 in Creditless Opening Theme Video](https://otakupal.com/explore-the-cyberpunk-world-of-ghost-in-the-shell-sac_2045-s2-in-creditless-opening-theme-video/)
 - [Cavalry Battle Erupts in The Way of the Househusband Movie Clip](https://otakupal.com/cavalry-battle-erupts-in-the-way-of-the-househusband-movie-clip/)
-- [Asaka to Perform Summer Time Rendering&#39;s New TV Anime Opening Theme This July](https://otakupal.com/asaka-to-perform-summer-time-renderings-new-tv-anime-opening-theme-this-july/)
-- [Delinquent Beatdowns Go Turn-Based in Banchou Tactics Strategy-RPG](https://otakupal.com/delinquent-beatdowns-go-turn-based-in-banchou-tactics-strategy-rpg/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
