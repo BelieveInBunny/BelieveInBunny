@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [MAN WITH A MISSION Releases Mobile Suit GUNDAM Iron Blooded Orphans Special Edition Theme Song MV](https://otakupal.com/man-with-a-mission-releases-mobile-suit-gundam-iron-blooded-orphans-special-edition-theme-song-mv/)
 - [When Will Ayumu Make His Move? Anime Sets July 7 Premiere with New Visual, Trailer](https://otakupal.com/when-will-ayumu-make-his-move-anime-sets-july-7-premiere-with-new-visual-trailer/)
 - [You&#39;ll Lose Your Head Over How Cute These SMOL Shinji and Kaworu Rukappu Figures Are](https://otakupal.com/youll-lose-your-head-over-how-cute-these-smol-shinji-and-kaworu-rukappu-figures-are/)
 - [Japan Box Office: Shin Ultraman Repeats at No.1 with Strong 486 Million Yen](https://otakupal.com/japan-box-office-shin-ultraman-repeats-at-no-1-with-strong-486-million-yen/)
 - [Voice Actress Kiyono Yasuno Celebrates Her Solo Artist Debut&#39;s 5th Anniversary on May 25 Live-Stream](https://otakupal.com/voice-actress-kiyono-yasuno-celebrates-her-solo-artist-debuts-5th-anniversary-on-may-25-live-stream/)
-- [Mamoru Oshii to Serve as Chief Judge of The 1st Niigata International Animation Film Festival](https://otakupal.com/mamoru-oshii-to-serve-as-chief-judge-of-the-1st-niigata-international-animation-film-festival/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
