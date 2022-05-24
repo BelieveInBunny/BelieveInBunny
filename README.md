@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Delinquent Beatdowns Go Turn-Based in Banchou Tactics Strategy-RPG](https://otakupal.com/delinquent-beatdowns-go-turn-based-in-banchou-tactics-strategy-rpg/)
+- [Dragon&#39;s Dogma 10th Anniversary Website Opens with Special Message](https://otakupal.com/dragons-dogma-10th-anniversary-website-opens-with-special-message/)
 - [Dress for a Day on the Green with Official BIRDIE WING -Golf Girls&#39; Story- Apparel Line](https://otakupal.com/dress-for-a-day-on-the-green-with-official-birdie-wing-golf-girls-story-apparel-line/)
 - [Kis-My-Ft2&#39;s Toshiya Miyata Joins Cast of Delicious Party Pretty Cure](https://otakupal.com/kis-my-ft2s-toshiya-miyata-joins-cast-of-delicious-party-pretty-cure/)
 - [Hanasaku Iroha-Inspired Festival Returns for 10th Anniversary After 2 Year Break](https://otakupal.com/hanasaku-iroha-inspired-festival-returns-for-10th-anniversary-after-2-year-break/)
-- [MAN WITH A MISSION Releases Mobile Suit GUNDAM Iron Blooded Orphans Special Edition Theme Song MV](https://otakupal.com/man-with-a-mission-releases-mobile-suit-gundam-iron-blooded-orphans-special-edition-theme-song-mv/)
-- [When Will Ayumu Make His Move? Anime Sets July 7 Premiere with New Visual, Trailer](https://otakupal.com/when-will-ayumu-make-his-move-anime-sets-july-7-premiere-with-new-visual-trailer/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
