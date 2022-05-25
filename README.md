@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Fact Check: Is Hunter x Hunter Author’s Twitter Account Actually Real?](https://otakupal.com/fact-check-is-hunter-x-hunter-authors-twitter-account-actually-real/)
 - [Phantom of the Idol Sets July 1 Premiere with New Key Visual, Main Trailer](https://otakupal.com/phantom-of-the-idol-sets-july-1-premiere-with-new-key-visual-main-trailer/)
 - [Smile of the Arsnotoria Anime Adaptation Officially Announced](https://otakupal.com/smile-of-the-arsnotoria-anime-adaptation-officially-announced/)
 - [Lycoris Recoil TV Anime Character Trailer Introduces Takina Inoue](https://otakupal.com/lycoris-recoil-tv-anime-character-trailer-introduces-takina-inoue/)
 - [A Vtuber Reveals She Became The Victim of Human Trafficking For 6 Months](https://otakupal.com/a-vtuber-reveals-she-became-the-victim-of-human-trafficking-for-6-months/)
-- [Get on the Beers with New Limited Edition Golden Kamuy Sapporo Cans](https://otakupal.com/get-on-the-beers-with-new-limited-edition-golden-kamuy-sapporo-cans/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
