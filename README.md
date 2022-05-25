@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Hunter x Hunter Manga Creator Yoshihiro Togashi Opens Twitter Account to Share In-Progress Work](https://otakupal.com/hunter-x-hunter-manga-creator-yoshihiro-togashi-opens-twitter-account-to-share-in-progress-work/)
+- [Yomawari 3 Brings Its Frights to the West as Yomawari: Lost in the Dark](https://otakupal.com/yomawari-3-brings-its-frights-to-the-west-as-yomawari-lost-in-the-dark/)
 - [Creator of Hunter x Hunter Revealed First Image From Upcoming Chapters](https://otakupal.com/creator-of-hunter-x-hunter-revealed-first-image-from-upcoming-chapters/)
 - [My Hero Academia and Sanrio Team Up for a 2nd Super Adorable Collab](https://otakupal.com/my-hero-academia-and-sanrio-team-up-for-a-2nd-super-adorable-collab/)
 - [PSYCHO-PASS Revival Commentary Event Hits Tokyo in August](https://otakupal.com/psycho-pass-revival-commentary-event-hits-tokyo-in-august/)
-- [Singing Platypus Trio Joins the Cast of Zannen na Ikimono Ziten Movie](https://otakupal.com/singing-platypus-trio-joins-the-cast-of-zannen-na-ikimono-ziten-movie/)
-- [Fact Check: Is Hunter x Hunter Author’s Twitter Account Actually Real?](https://otakupal.com/fact-check-is-hunter-x-hunter-authors-twitter-account-actually-real/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
