@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [A Vtuber Reveals She Became The Victim of Human Trafficking For 6 Months](https://otakupal.com/a-vtuber-reveals-she-became-the-victim-of-human-trafficking-for-6-months/)
+- [Get on the Beers with New Limited Edition Golden Kamuy Sapporo Cans](https://otakupal.com/get-on-the-beers-with-new-limited-edition-golden-kamuy-sapporo-cans/)
 - [One Piece Chapter 1050 Spoilers: Kaido’s Fate!](https://otakupal.com/one-piece-chapter-1050-spoilers-kaidos-fate/)
 - [The Rose of Versailles Manga to Hold Its 50th Anniversary Exhibition in Tokyo This Fall](https://otakupal.com/the-rose-of-versailles-manga-to-hold-its-50th-anniversary-exhibition-in-tokyo-this-fall/)
 - [Farming Fantasy Anime Noumin Kanren no Skill Bakka Agetetara Nazeka Tsuyoku Natta. Unearths First Details](https://otakupal.com/farming-fantasy-anime-noumin-kanren-no-skill-bakka-agetetara-nazeka-tsuyoku-natta-unearths-first-details/)
-- [ONE PIECE FILM RED Hoists Up New Character Designs for the Marines, World Government](https://otakupal.com/one-piece-film-red-hoists-up-new-character-designs-for-the-marines-world-government/)
-- [Listen to Anisong Singer Konomi Suzuki&#39;s Cheerful Singing Voice in New MV &quot;ULTRA FLASH&quot;](https://otakupal.com/listen-to-anisong-singer-konomi-suzukis-cheerful-singing-voice-in-new-mv-ultra-flash/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
