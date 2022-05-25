@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Creator of Hunter x Hunter Revealed First Image From Upcoming Chapters](https://otakupal.com/creator-of-hunter-x-hunter-revealed-first-image-from-upcoming-chapters/)
+- [My Hero Academia and Sanrio Team Up for a 2nd Super Adorable Collab](https://otakupal.com/my-hero-academia-and-sanrio-team-up-for-a-2nd-super-adorable-collab/)
 - [PSYCHO-PASS Revival Commentary Event Hits Tokyo in August](https://otakupal.com/psycho-pass-revival-commentary-event-hits-tokyo-in-august/)
 - [Singing Platypus Trio Joins the Cast of Zannen na Ikimono Ziten Movie](https://otakupal.com/singing-platypus-trio-joins-the-cast-of-zannen-na-ikimono-ziten-movie/)
 - [Fact Check: Is Hunter x Hunter Author’s Twitter Account Actually Real?](https://otakupal.com/fact-check-is-hunter-x-hunter-authors-twitter-account-actually-real/)
-- [Phantom of the Idol Sets July 1 Premiere with New Key Visual, Main Trailer](https://otakupal.com/phantom-of-the-idol-sets-july-1-premiere-with-new-key-visual-main-trailer/)
-- [Smile of the Arsnotoria Anime Adaptation Officially Announced](https://otakupal.com/smile-of-the-arsnotoria-anime-adaptation-officially-announced/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
