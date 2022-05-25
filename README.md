@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Phantom of the Idol Sets July 1 Premiere with New Key Visual, Main Trailer](https://otakupal.com/phantom-of-the-idol-sets-july-1-premiere-with-new-key-visual-main-trailer/)
+- [Smile of the Arsnotoria Anime Adaptation Officially Announced](https://otakupal.com/smile-of-the-arsnotoria-anime-adaptation-officially-announced/)
+- [Lycoris Recoil TV Anime Character Trailer Introduces Takina Inoue](https://otakupal.com/lycoris-recoil-tv-anime-character-trailer-introduces-takina-inoue/)
 - [A Vtuber Reveals She Became The Victim of Human Trafficking For 6 Months](https://otakupal.com/a-vtuber-reveals-she-became-the-victim-of-human-trafficking-for-6-months/)
 - [Get on the Beers with New Limited Edition Golden Kamuy Sapporo Cans](https://otakupal.com/get-on-the-beers-with-new-limited-edition-golden-kamuy-sapporo-cans/)
-- [One Piece Chapter 1050 Spoilers: Kaido’s Fate!](https://otakupal.com/one-piece-chapter-1050-spoilers-kaidos-fate/)
-- [The Rose of Versailles Manga to Hold Its 50th Anniversary Exhibition in Tokyo This Fall](https://otakupal.com/the-rose-of-versailles-manga-to-hold-its-50th-anniversary-exhibition-in-tokyo-this-fall/)
-- [Farming Fantasy Anime Noumin Kanren no Skill Bakka Agetetara Nazeka Tsuyoku Natta. Unearths First Details](https://otakupal.com/farming-fantasy-anime-noumin-kanren-no-skill-bakka-agetetara-nazeka-tsuyoku-natta-unearths-first-details/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
