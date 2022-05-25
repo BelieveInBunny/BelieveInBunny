@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Second Valis Collection Includes PC Engine, Genesis and MSX Games](https://otakupal.com/second-valis-collection-includes-pc-engine-genesis-and-msx-games/)
+- [OPINION: Why Yoshihiro Togashi Is My Favorite Manga Creator](https://otakupal.com/opinion-why-yoshihiro-togashi-is-my-favorite-manga-creator/)
 - [Crunchyroll Hosts First TikTok Live Anime Watch Party with Samurai Champloo](https://otakupal.com/crunchyroll-hosts-first-tiktok-live-anime-watch-party-with-samurai-champloo/)
 - [The Masterful Cat Is Depressed Again Today Becomes an Anime in 2023](https://otakupal.com/the-masterful-cat-is-depressed-again-today-becomes-an-anime-in-2023/)
 - [HUB, Japan&#39;s British Pub, Celebrates PROMARE with Spicy Grub](https://otakupal.com/hub-japans-british-pub-celebrates-promare-with-spicy-grub/)
-- [Hunter x Hunter Manga Creator Yoshihiro Togashi Opens Twitter Account to Share In-Progress Work](https://otakupal.com/hunter-x-hunter-manga-creator-yoshihiro-togashi-opens-twitter-account-to-share-in-progress-work/)
-- [Yomawari 3 Brings Its Frights to the West as Yomawari: Lost in the Dark](https://otakupal.com/yomawari-3-brings-its-frights-to-the-west-as-yomawari-lost-in-the-dark/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
