@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [The Rose of Versailles Manga to Hold Its 50th Anniversary Exhibition in Tokyo This Fall](https://otakupal.com/the-rose-of-versailles-manga-to-hold-its-50th-anniversary-exhibition-in-tokyo-this-fall/)
 - [Farming Fantasy Anime Noumin Kanren no Skill Bakka Agetetara Nazeka Tsuyoku Natta. Unearths First Details](https://otakupal.com/farming-fantasy-anime-noumin-kanren-no-skill-bakka-agetetara-nazeka-tsuyoku-natta-unearths-first-details/)
 - [ONE PIECE FILM RED Hoists Up New Character Designs for the Marines, World Government](https://otakupal.com/one-piece-film-red-hoists-up-new-character-designs-for-the-marines-world-government/)
 - [Listen to Anisong Singer Konomi Suzuki&#39;s Cheerful Singing Voice in New MV &quot;ULTRA FLASH&quot;](https://otakupal.com/listen-to-anisong-singer-konomi-suzukis-cheerful-singing-voice-in-new-mv-ultra-flash/)
 - [Hideaki Anno&#39;s Return of Ultraman Jacket Gets Official Reproduction](https://otakupal.com/hideaki-annos-return-of-ultraman-jacket-gets-official-reproduction/)
-- [HITORIE Posts Illustration Anime MV for Dance Dance Danseur Ending Theme](https://otakupal.com/hitorie-posts-illustration-anime-mv-for-dance-dance-danseur-ending-theme/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
