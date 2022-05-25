@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Baseball Club Members Got Their Hair Shaved in Yakyubu ni Hanataba wo Live-action Film Teaser Trailer](https://otakupal.com/baseball-club-members-got-their-hair-shaved-in-yakyubu-ni-hanataba-wo-live-action-film-teaser-trailer/)
+- [World Cosplay Summit Set to Return to Nagoya on August 5-7](https://otakupal.com/world-cosplay-summit-set-to-return-to-nagoya-on-august-5-7/)
 - [Pokémon GO Teases Ultra Beasts with Cryptic Nihilego Video](https://otakupal.com/pokemon-go-teases-ultra-beasts-with-cryptic-nihilego-video/)
 - [Crunchyroll Games to Launch Bloodline: The Last Royal Vampire](https://otakupal.com/crunchyroll-games-to-launch-bloodline-the-last-royal-vampire/)
 - [Land of the Lustrous Manga to Resume Next Month After 1.5-Year Hiatus](https://otakupal.com/land-of-the-lustrous-manga-to-resume-next-month-after-1-5-year-hiatus/)
-- [Gon and Killua Voice Actors React To Hunter x Hunter Return](https://otakupal.com/gon-and-killua-voice-actors-react-to-hunter-x-hunter-return/)
-- [PROMARE Fires Up 3rd Anniversary Celebrations with Stylish Illustration](https://otakupal.com/promare-fires-up-3rd-anniversary-celebrations-with-stylish-illustration/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
