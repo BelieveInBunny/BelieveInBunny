@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. 💪 Opened PR [#58](https://github.com/torrust/torrust/pull/58) in [torrust/torrust](https://github.com/torrust/torrust)
-2. ❌ Closed PR [#57](https://github.com/torrust/torrust/pull/57) in [torrust/torrust](https://github.com/torrust/torrust)
-3. 💪 Opened PR [#57](https://github.com/torrust/torrust/pull/57) in [torrust/torrust](https://github.com/torrust/torrust)
-4. ❗️ Opened issue [#345](https://github.com/MatrixTM/MHDDoS/issues/345) in [MatrixTM/MHDDoS](https://github.com/MatrixTM/MHDDoS)
-5. 🗣 Commented on [#342](https://github.com/MatrixTM/MHDDoS/issues/342) in [MatrixTM/MHDDoS](https://github.com/MatrixTM/MHDDoS)
+1. 🗣 Commented on [#59](https://github.com/torrust/torrust/issues/59) in [torrust/torrust](https://github.com/torrust/torrust)
+2. 💪 Opened PR [#58](https://github.com/torrust/torrust/pull/58) in [torrust/torrust](https://github.com/torrust/torrust)
+3. ❌ Closed PR [#57](https://github.com/torrust/torrust/pull/57) in [torrust/torrust](https://github.com/torrust/torrust)
+4. 💪 Opened PR [#57](https://github.com/torrust/torrust/pull/57) in [torrust/torrust](https://github.com/torrust/torrust)
+5. ❗️ Opened issue [#345](https://github.com/MatrixTM/MHDDoS/issues/345) in [MatrixTM/MHDDoS](https://github.com/MatrixTM/MHDDoS)
 <!--END_SECTION:activity-->
 
 </details>
