@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. ❗️ Opened issue [#345](https://github.com/MatrixTM/MHDDoS/issues/345) in [MatrixTM/MHDDoS](https://github.com/MatrixTM/MHDDoS)
-2. 🗣 Commented on [#342](https://github.com/MatrixTM/MHDDoS/issues/342) in [MatrixTM/MHDDoS](https://github.com/MatrixTM/MHDDoS)
-3. ❗️ Opened issue [#407](https://github.com/jikan-me/jikan/issues/407) in [jikan-me/jikan](https://github.com/jikan-me/jikan)
-4. ❗️ Opened issue [#5](https://github.com/scriptzteam/xBiT-Torrents-Magnets-Indexer/issues/5) in [scriptzteam/xBiT-Torrents-Magnets-Indexer](https://github.com/scriptzteam/xBiT-Torrents-Magnets-Indexer)
-5. 🗣 Commented on [#47](https://github.com/torrust/torrust/issues/47) in [torrust/torrust](https://github.com/torrust/torrust)
+1. 💪 Opened PR [#58](https://github.com/torrust/torrust/pull/58) in [torrust/torrust](https://github.com/torrust/torrust)
+2. ❌ Closed PR [#57](https://github.com/torrust/torrust/pull/57) in [torrust/torrust](https://github.com/torrust/torrust)
+3. 💪 Opened PR [#57](https://github.com/torrust/torrust/pull/57) in [torrust/torrust](https://github.com/torrust/torrust)
+4. ❗️ Opened issue [#345](https://github.com/MatrixTM/MHDDoS/issues/345) in [MatrixTM/MHDDoS](https://github.com/MatrixTM/MHDDoS)
+5. 🗣 Commented on [#342](https://github.com/MatrixTM/MHDDoS/issues/342) in [MatrixTM/MHDDoS](https://github.com/MatrixTM/MHDDoS)
 <!--END_SECTION:activity-->
 
 </details>
