@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. 🎉 Merged PR [#1](https://github.com/BelieveInBunny/onedrive-index/pull/1) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
-2. ❌ Closed PR [#2](https://github.com/BelieveInBunny/onedrive-index/pull/2) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
-3. 🎉 Merged PR [#3](https://github.com/BelieveInBunny/onedrive-index/pull/3) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
-4. 🗣 Commented on [#59](https://github.com/torrust/torrust/issues/59) in [torrust/torrust](https://github.com/torrust/torrust)
-5. 💪 Opened PR [#58](https://github.com/torrust/torrust/pull/58) in [torrust/torrust](https://github.com/torrust/torrust)
+1. 🗣 Commented on [#58](https://github.com/torrust/torrust/issues/58) in [torrust/torrust](https://github.com/torrust/torrust)
+2. 🎉 Merged PR [#1](https://github.com/BelieveInBunny/onedrive-index/pull/1) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
+3. ❌ Closed PR [#2](https://github.com/BelieveInBunny/onedrive-index/pull/2) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
+4. 🎉 Merged PR [#3](https://github.com/BelieveInBunny/onedrive-index/pull/3) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
+5. 🗣 Commented on [#59](https://github.com/torrust/torrust/issues/59) in [torrust/torrust](https://github.com/torrust/torrust)
 <!--END_SECTION:activity-->
 
 </details>
