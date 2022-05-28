@@ -83,9 +83,9 @@
 <!--START_SECTION:activity-->
 1. 🗣 Commented on [#58](https://github.com/torrust/torrust/issues/58) in [torrust/torrust](https://github.com/torrust/torrust)
 2. 🗣 Commented on [#58](https://github.com/torrust/torrust/issues/58) in [torrust/torrust](https://github.com/torrust/torrust)
-3. 🎉 Merged PR [#1](https://github.com/BelieveInBunny/onedrive-index/pull/1) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
-4. ❌ Closed PR [#2](https://github.com/BelieveInBunny/onedrive-index/pull/2) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
-5. 🎉 Merged PR [#3](https://github.com/BelieveInBunny/onedrive-index/pull/3) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
+3. 🗣 Commented on [#58](https://github.com/torrust/torrust/issues/58) in [torrust/torrust](https://github.com/torrust/torrust)
+4. 🗣 Commented on [#58](https://github.com/torrust/torrust/issues/58) in [torrust/torrust](https://github.com/torrust/torrust)
+5. 🎉 Merged PR [#1](https://github.com/BelieveInBunny/onedrive-index/pull/1) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
 <!--END_SECTION:activity-->
 
 </details>
