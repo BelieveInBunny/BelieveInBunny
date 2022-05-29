@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Second Valis Collection Includes PC Engine, Genesis and MSX Games](https://otakupal.com/second-valis-collection-includes-pc-engine-genesis-and-msx-games/)
-- [OPINION: Why Yoshihiro Togashi Is My Favorite Manga Creator](https://otakupal.com/opinion-why-yoshihiro-togashi-is-my-favorite-manga-creator/)
-- [Crunchyroll Hosts First TikTok Live Anime Watch Party with Samurai Champloo](https://otakupal.com/crunchyroll-hosts-first-tiktok-live-anime-watch-party-with-samurai-champloo/)
-- [The Masterful Cat Is Depressed Again Today Becomes an Anime in 2023](https://otakupal.com/the-masterful-cat-is-depressed-again-today-becomes-an-anime-in-2023/)
-- [HUB, Japan&#39;s British Pub, Celebrates PROMARE with Spicy Grub](https://otakupal.com/hub-japans-british-pub-celebrates-promare-with-spicy-grub/)
+- [Books: Japan’s Carnival War](https://otakupal.com/books-japans-carnival-war/)
+- [J-Novel Club Announces 10 Light Novel, Manga Titles at Anime Boston](https://otakupal.com/j-novel-club-announces-10-light-novel-manga-titles-at-anime-boston/)
+- [Azuki to Release Idol Manga Hikaru in the Light! In June](https://otakupal.com/azuki-to-release-idol-manga-hikaru-in-the-light-in-june/)
+- [Attack on Titan and mayla classic Collab to Create Art Piece Earrings](https://otakupal.com/attack-on-titan-and-mayla-classic-collab-to-create-art-piece-earrings/)
+- [SD Gundam G Generation ETERNAL Revealed in Latest Gundam Game Update](https://otakupal.com/sd-gundam-g-generation-eternal-revealed-in-latest-gundam-game-update/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
