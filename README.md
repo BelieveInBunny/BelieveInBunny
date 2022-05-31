@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. 🗣 Commented on [#58](https://github.com/torrust/torrust/issues/58) in [torrust/torrust](https://github.com/torrust/torrust)
-2. 🗣 Commented on [#49](https://github.com/torrust/torrust/issues/49) in [torrust/torrust](https://github.com/torrust/torrust)
-3. ❗️ Opened issue [#8](https://github.com/torrust/torrust-documentation/issues/8) in [torrust/torrust-documentation](https://github.com/torrust/torrust-documentation)
-4. ❗️ Opened issue [#7](https://github.com/torrust/torrust-documentation/issues/7) in [torrust/torrust-documentation](https://github.com/torrust/torrust-documentation)
-5. 🗣 Commented on [#30](https://github.com/torrust/torrust/issues/30) in [torrust/torrust](https://github.com/torrust/torrust)
+1. ❌ Closed PR [#58](https://github.com/torrust/torrust/pull/58) in [torrust/torrust](https://github.com/torrust/torrust)
+2. 🗣 Commented on [#58](https://github.com/torrust/torrust/issues/58) in [torrust/torrust](https://github.com/torrust/torrust)
+3. ❌ Closed PR [#1](https://github.com/Piracy-Wiki/Toruro/pull/1) in [Piracy-Wiki/Toruro](https://github.com/Piracy-Wiki/Toruro)
+4. 💪 Opened PR [#1](https://github.com/Piracy-Wiki/Toruro/pull/1) in [Piracy-Wiki/Toruro](https://github.com/Piracy-Wiki/Toruro)
+5. 🗣 Commented on [#58](https://github.com/torrust/torrust/issues/58) in [torrust/torrust](https://github.com/torrust/torrust)
 <!--END_SECTION:activity-->
 
 </details>
