@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Books: Japan’s Carnival War](https://otakupal.com/books-japans-carnival-war/)
-- [J-Novel Club Announces 10 Light Novel, Manga Titles at Anime Boston](https://otakupal.com/j-novel-club-announces-10-light-novel-manga-titles-at-anime-boston/)
-- [Azuki to Release Idol Manga Hikaru in the Light! In June](https://otakupal.com/azuki-to-release-idol-manga-hikaru-in-the-light-in-june/)
-- [Attack on Titan and mayla classic Collab to Create Art Piece Earrings](https://otakupal.com/attack-on-titan-and-mayla-classic-collab-to-create-art-piece-earrings/)
-- [SD Gundam G Generation ETERNAL Revealed in Latest Gundam Game Update](https://otakupal.com/sd-gundam-g-generation-eternal-revealed-in-latest-gundam-game-update/)
+- [Zokki](https://otakupal.com/zokki/)
+- [See the New Trailer for Devilish Anime Rom-Com Engage Kiss](https://otakupal.com/see-the-new-trailer-for-devilish-anime-rom-com-engage-kiss/)
+- [ELEVEN ARTS Acquires The House of the Lost on the Cape, DEEMO Memorial Keys Anime Films](https://otakupal.com/eleven-arts-acquires-the-house-of-the-lost-on-the-cape-deemo-memorial-keys-anime-films/)
+- [Dyspo Struts Speedy Skills in Dragon Ball Xenoverse 2 DLC Trailer](https://otakupal.com/dyspo-struts-speedy-skills-in-dragon-ball-xenoverse-2-dlc-trailer/)
+- [FEATURE: How SABIKUI BISCO Effortlessly Capture the Soul of Anime](https://otakupal.com/feature-how-sabikui-bisco-effortlessly-capture-the-soul-of-anime/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
