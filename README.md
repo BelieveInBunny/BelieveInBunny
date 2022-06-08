@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. 🗣 Commented on [#62](https://github.com/torrust/torrust-index/issues/62) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
-2. 🗣 Commented on [#62](https://github.com/torrust/torrust/issues/62) in [torrust/torrust](https://github.com/torrust/torrust)
-3. 💪 Opened PR [#62](https://github.com/torrust/torrust/pull/62) in [torrust/torrust](https://github.com/torrust/torrust)
-4. ❌ Closed PR [#58](https://github.com/torrust/torrust/pull/58) in [torrust/torrust](https://github.com/torrust/torrust)
-5. 🗣 Commented on [#58](https://github.com/torrust/torrust/issues/58) in [torrust/torrust](https://github.com/torrust/torrust)
+1. 🗣 Commented on [#66](https://github.com/torrust/torrust-index/issues/66) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
+2. 🗣 Commented on [#65](https://github.com/torrust/torrust-index/issues/65) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
+3. 🗣 Commented on [#64](https://github.com/torrust/torrust-index/issues/64) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
+4. 💪 Opened PR [#66](https://github.com/torrust/torrust-index/pull/66) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
+5. 💪 Opened PR [#65](https://github.com/torrust/torrust-index/pull/65) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
 <!--END_SECTION:activity-->
 
 </details>
