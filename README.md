@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. 💪 Opened PR [#27](https://github.com/torrust/torrust-index-backend/pull/27) in [torrust/torrust-index-backend](https://github.com/torrust/torrust-index-backend)
-2. 💪 Opened PR [#27](https://github.com/torrust/torrust-index-frontend/pull/27) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
-3. 💪 Opened PR [#26](https://github.com/torrust/torrust-index-backend/pull/26) in [torrust/torrust-index-backend](https://github.com/torrust/torrust-index-backend)
-4. 💪 Opened PR [#26](https://github.com/torrust/torrust-index-frontend/pull/26) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
-5. 💪 Opened PR [#25](https://github.com/torrust/torrust-index-frontend/pull/25) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
+1. 🗣 Commented on [#25](https://github.com/torrust/torrust-index-frontend/issues/25) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
+2. 💪 Opened PR [#27](https://github.com/torrust/torrust-index-backend/pull/27) in [torrust/torrust-index-backend](https://github.com/torrust/torrust-index-backend)
+3. 💪 Opened PR [#27](https://github.com/torrust/torrust-index-frontend/pull/27) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
+4. 💪 Opened PR [#26](https://github.com/torrust/torrust-index-backend/pull/26) in [torrust/torrust-index-backend](https://github.com/torrust/torrust-index-backend)
+5. 💪 Opened PR [#26](https://github.com/torrust/torrust-index-frontend/pull/26) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
 <!--END_SECTION:activity-->
 
 </details>
