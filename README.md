@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Zokki](https://otakupal.com/zokki/)
-- [See the New Trailer for Devilish Anime Rom-Com Engage Kiss](https://otakupal.com/see-the-new-trailer-for-devilish-anime-rom-com-engage-kiss/)
-- [ELEVEN ARTS Acquires The House of the Lost on the Cape, DEEMO Memorial Keys Anime Films](https://otakupal.com/eleven-arts-acquires-the-house-of-the-lost-on-the-cape-deemo-memorial-keys-anime-films/)
-- [Dyspo Struts Speedy Skills in Dragon Ball Xenoverse 2 DLC Trailer](https://otakupal.com/dyspo-struts-speedy-skills-in-dragon-ball-xenoverse-2-dlc-trailer/)
-- [FEATURE: How SABIKUI BISCO Effortlessly Capture the Soul of Anime](https://otakupal.com/feature-how-sabikui-bisco-effortlessly-capture-the-soul-of-anime/)
+- [Voice Actor Billy Kametz Passes Away at 35](https://otakupal.com/voice-actor-billy-kametz-passes-away-at-35/)
+- [Your Best Girls Are Back in Rent-a-Girlfriend Season 2 PV](https://otakupal.com/your-best-girls-are-back-in-rent-a-girlfriend-season-2-pv/)
+- [WATATEN!: An Angel Flew Down to Me Film Debuts Trailer, Poster, and Theme](https://otakupal.com/wataten-an-angel-flew-down-to-me-film-debuts-trailer-poster-and-theme/)
+- [Anonymous;Code Game Reveals New Promo and Prologue Videos](https://otakupal.com/anonymouscode-game-reveals-new-promo-and-prologue-videos/)
+- [FEATURE: The Shadow Dragons in Dragon Ball GT Were A Brilliant Idea](https://otakupal.com/feature-the-shadow-dragons-in-dragon-ball-gt-were-a-brilliant-idea/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
