@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. ❌ Closed PR [#1](https://github.com/Piracy-Wiki/Toruro-Index-Frontend/pull/1) in [Piracy-Wiki/Toruro-Index-Frontend](https://github.com/Piracy-Wiki/Toruro-Index-Frontend)
-2. 💪 Opened PR [#1](https://github.com/Piracy-Wiki/Toruro-Index-Frontend/pull/1) in [Piracy-Wiki/Toruro-Index-Frontend](https://github.com/Piracy-Wiki/Toruro-Index-Frontend)
-3. 🗣 Commented on [#25](https://github.com/torrust/torrust-index-frontend/issues/25) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
-4. 💪 Opened PR [#27](https://github.com/torrust/torrust-index-backend/pull/27) in [torrust/torrust-index-backend](https://github.com/torrust/torrust-index-backend)
-5. 💪 Opened PR [#27](https://github.com/torrust/torrust-index-frontend/pull/27) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
+1. 💪 Opened PR [#29](https://github.com/torrust/torrust-index-backend/pull/29) in [torrust/torrust-index-backend](https://github.com/torrust/torrust-index-backend)
+2. ❌ Closed PR [#1](https://github.com/Piracy-Wiki/Toruro-Index-Frontend/pull/1) in [Piracy-Wiki/Toruro-Index-Frontend](https://github.com/Piracy-Wiki/Toruro-Index-Frontend)
+3. 💪 Opened PR [#1](https://github.com/Piracy-Wiki/Toruro-Index-Frontend/pull/1) in [Piracy-Wiki/Toruro-Index-Frontend](https://github.com/Piracy-Wiki/Toruro-Index-Frontend)
+4. 🗣 Commented on [#25](https://github.com/torrust/torrust-index-frontend/issues/25) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
+5. 💪 Opened PR [#27](https://github.com/torrust/torrust-index-backend/pull/27) in [torrust/torrust-index-backend](https://github.com/torrust/torrust-index-backend)
 <!--END_SECTION:activity-->
 
 </details>
