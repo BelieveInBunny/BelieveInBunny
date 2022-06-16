@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. 🗣 Commented on [#1](https://github.com/pavanpabs/react-scratchcard-v3/issues/1) in [pavanpabs/react-scratchcard-v3](https://github.com/pavanpabs/react-scratchcard-v3)
+1. 🗣 Commented on [#2](https://github.com/dopey2/react-scratchcard-v2/issues/2) in [dopey2/react-scratchcard-v2](https://github.com/dopey2/react-scratchcard-v2)
 2. 🗣 Commented on [#2](https://github.com/dopey2/react-scratchcard-v2/issues/2) in [dopey2/react-scratchcard-v2](https://github.com/dopey2/react-scratchcard-v2)
-3. 🗣 Commented on [#2](https://github.com/dopey2/react-scratchcard-v2/issues/2) in [dopey2/react-scratchcard-v2](https://github.com/dopey2/react-scratchcard-v2)
-4. ❗️ Opened issue [#2](https://github.com/dopey2/react-scratchcard-v2/issues/2) in [dopey2/react-scratchcard-v2](https://github.com/dopey2/react-scratchcard-v2)
-5. ❗️ Opened issue [#1](https://github.com/pavanpabs/react-scratchcard-v3/issues/1) in [pavanpabs/react-scratchcard-v3](https://github.com/pavanpabs/react-scratchcard-v3)
+3. ❗️ Closed issue [#1](https://github.com/pavanpabs/react-scratchcard-v3/issues/1) in [pavanpabs/react-scratchcard-v3](https://github.com/pavanpabs/react-scratchcard-v3)
+4. 🗣 Commented on [#1](https://github.com/pavanpabs/react-scratchcard-v3/issues/1) in [pavanpabs/react-scratchcard-v3](https://github.com/pavanpabs/react-scratchcard-v3)
+5. 🗣 Commented on [#1](https://github.com/pavanpabs/react-scratchcard-v3/issues/1) in [pavanpabs/react-scratchcard-v3](https://github.com/pavanpabs/react-scratchcard-v3)
 <!--END_SECTION:activity-->
 
 </details>
