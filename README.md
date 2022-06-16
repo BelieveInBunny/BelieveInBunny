@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. 🎉 Merged PR [#4](https://github.com/BelieveInBunny/onedrive-index/pull/4) in [BelieveInBunny/onedrive-index](https://github.com/BelieveInBunny/onedrive-index)
-2. 💪 Opened PR [#30](https://github.com/torrust/torrust-index-frontend/pull/30) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
-3. 💪 Opened PR [#29](https://github.com/torrust/torrust-index-backend/pull/29) in [torrust/torrust-index-backend](https://github.com/torrust/torrust-index-backend)
-4. ❌ Closed PR [#1](https://github.com/Piracy-Wiki/Toruro-Index-Frontend/pull/1) in [Piracy-Wiki/Toruro-Index-Frontend](https://github.com/Piracy-Wiki/Toruro-Index-Frontend)
-5. 💪 Opened PR [#1](https://github.com/Piracy-Wiki/Toruro-Index-Frontend/pull/1) in [Piracy-Wiki/Toruro-Index-Frontend](https://github.com/Piracy-Wiki/Toruro-Index-Frontend)
+1. 🗣 Commented on [#1](https://github.com/pavanpabs/react-scratchcard-v3/issues/1) in [pavanpabs/react-scratchcard-v3](https://github.com/pavanpabs/react-scratchcard-v3)
+2. 🗣 Commented on [#2](https://github.com/dopey2/react-scratchcard-v2/issues/2) in [dopey2/react-scratchcard-v2](https://github.com/dopey2/react-scratchcard-v2)
+3. 🗣 Commented on [#2](https://github.com/dopey2/react-scratchcard-v2/issues/2) in [dopey2/react-scratchcard-v2](https://github.com/dopey2/react-scratchcard-v2)
+4. ❗️ Opened issue [#2](https://github.com/dopey2/react-scratchcard-v2/issues/2) in [dopey2/react-scratchcard-v2](https://github.com/dopey2/react-scratchcard-v2)
+5. ❗️ Opened issue [#1](https://github.com/pavanpabs/react-scratchcard-v3/issues/1) in [pavanpabs/react-scratchcard-v3](https://github.com/pavanpabs/react-scratchcard-v3)
 <!--END_SECTION:activity-->
 
 </details>
