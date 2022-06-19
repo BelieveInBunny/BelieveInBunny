@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. ❗️ Opened issue [#13](https://github.com/aleksik/react-scratchcard/issues/13) in [aleksik/react-scratchcard](https://github.com/aleksik/react-scratchcard)
-2. 💪 Opened PR [#547](https://github.com/bl00mber/react-phone-input-2/pull/547) in [bl00mber/react-phone-input-2](https://github.com/bl00mber/react-phone-input-2)
-3. 🗣 Commented on [#546](https://github.com/bl00mber/react-phone-input-2/issues/546) in [bl00mber/react-phone-input-2](https://github.com/bl00mber/react-phone-input-2)
-4. ❗️ Opened issue [#546](https://github.com/bl00mber/react-phone-input-2/issues/546) in [bl00mber/react-phone-input-2](https://github.com/bl00mber/react-phone-input-2)
-5. 🗣 Commented on [#2](https://github.com/dopey2/react-scratchcard-v2/issues/2) in [dopey2/react-scratchcard-v2](https://github.com/dopey2/react-scratchcard-v2)
+1. 💪 Opened PR [#34](https://github.com/torrust/torrust-index-frontend/pull/34) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
+2. 💪 Opened PR [#31](https://github.com/torrust/torrust-index-backend/pull/31) in [torrust/torrust-index-backend](https://github.com/torrust/torrust-index-backend)
+3. ❗️ Opened issue [#13](https://github.com/aleksik/react-scratchcard/issues/13) in [aleksik/react-scratchcard](https://github.com/aleksik/react-scratchcard)
+4. 💪 Opened PR [#547](https://github.com/bl00mber/react-phone-input-2/pull/547) in [bl00mber/react-phone-input-2](https://github.com/bl00mber/react-phone-input-2)
+5. 🗣 Commented on [#546](https://github.com/bl00mber/react-phone-input-2/issues/546) in [bl00mber/react-phone-input-2](https://github.com/bl00mber/react-phone-input-2)
 <!--END_SECTION:activity-->
 
 </details>
