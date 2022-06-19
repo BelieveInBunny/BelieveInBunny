@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Voice Actor Billy Kametz Passes Away at 35](https://otakupal.com/voice-actor-billy-kametz-passes-away-at-35/)
-- [Your Best Girls Are Back in Rent-a-Girlfriend Season 2 PV](https://otakupal.com/your-best-girls-are-back-in-rent-a-girlfriend-season-2-pv/)
-- [WATATEN!: An Angel Flew Down to Me Film Debuts Trailer, Poster, and Theme](https://otakupal.com/wataten-an-angel-flew-down-to-me-film-debuts-trailer-poster-and-theme/)
-- [Anonymous;Code Game Reveals New Promo and Prologue Videos](https://otakupal.com/anonymouscode-game-reveals-new-promo-and-prologue-videos/)
-- [FEATURE: The Shadow Dragons in Dragon Ball GT Were A Brilliant Idea](https://otakupal.com/feature-the-shadow-dragons-in-dragon-ball-gt-were-a-brilliant-idea/)
+- [Tokyo Revengers Christmas Showdown Arc Kicks Off in January 2023](https://otakupal.com/tokyo-revengers-christmas-showdown-arc-kicks-off-in-january-2023/)
+- [GUNDAM FACTORY YOKOHAMA Reopens in July with Big Events](https://otakupal.com/gundam-factory-yokohama-reopens-in-july-with-big-events/)
+- [RESULTS: Which Spring 2022 Anime OPs Did You Vote As Your Top 5 Favorites?](https://otakupal.com/results-which-spring-2022-anime-ops-did-you-vote-as-your-top-5-favorites/)
+- [Laid-Back Camp Collaborates with Cup Noodle Curry](https://otakupal.com/laid-back-camp-collaborates-with-cup-noodle-curry/)
+- [The Girls of Rent-a-Girlfriend Are Ready for Season 2 in New Key Visual](https://otakupal.com/the-girls-of-rent-a-girlfriend-are-ready-for-season-2-in-new-key-visual/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
