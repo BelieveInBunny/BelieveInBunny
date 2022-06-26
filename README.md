@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Tokyo Revengers Christmas Showdown Arc Kicks Off in January 2023](https://otakupal.com/tokyo-revengers-christmas-showdown-arc-kicks-off-in-january-2023/)
-- [GUNDAM FACTORY YOKOHAMA Reopens in July with Big Events](https://otakupal.com/gundam-factory-yokohama-reopens-in-july-with-big-events/)
-- [RESULTS: Which Spring 2022 Anime OPs Did You Vote As Your Top 5 Favorites?](https://otakupal.com/results-which-spring-2022-anime-ops-did-you-vote-as-your-top-5-favorites/)
-- [Laid-Back Camp Collaborates with Cup Noodle Curry](https://otakupal.com/laid-back-camp-collaborates-with-cup-noodle-curry/)
-- [The Girls of Rent-a-Girlfriend Are Ready for Season 2 in New Key Visual](https://otakupal.com/the-girls-of-rent-a-girlfriend-are-ready-for-season-2-in-new-key-visual/)
+- [GrimGrimoire OnceMore Trailer Introduces Necromancy Magic](https://otakupal.com/grimgrimoire-oncemore-trailer-introduces-necromancy-magic/)
+- [SEGA Reveals 10 More Games, Cyber Stick Controller for Genesis Mini 2](https://otakupal.com/sega-reveals-10-more-games-cyber-stick-controller-for-genesis-mini-2/)
+- [FEATURE: Sasaki and Miyano Reminds Me of My Own Love Story](https://otakupal.com/feature-sasaki-and-miyano-reminds-me-of-my-own-love-story/)
+- [Love All Play TV Anime Heads to Second Cour with New Key Visual](https://otakupal.com/love-all-play-tv-anime-heads-to-second-cour-with-new-key-visual/)
+- [Aoashi TV Anime Continues with New Key Visual and More](https://otakupal.com/aoashi-tv-anime-continues-with-new-key-visual-and-more/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
