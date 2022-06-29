@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [GrimGrimoire OnceMore Trailer Introduces Necromancy Magic](https://otakupal.com/grimgrimoire-oncemore-trailer-introduces-necromancy-magic/)
-- [SEGA Reveals 10 More Games, Cyber Stick Controller for Genesis Mini 2](https://otakupal.com/sega-reveals-10-more-games-cyber-stick-controller-for-genesis-mini-2/)
-- [FEATURE: Sasaki and Miyano Reminds Me of My Own Love Story](https://otakupal.com/feature-sasaki-and-miyano-reminds-me-of-my-own-love-story/)
-- [Love All Play TV Anime Heads to Second Cour with New Key Visual](https://otakupal.com/love-all-play-tv-anime-heads-to-second-cour-with-new-key-visual/)
-- [Aoashi TV Anime Continues with New Key Visual and More](https://otakupal.com/aoashi-tv-anime-continues-with-new-key-visual-and-more/)
+- [BASTARD!! -Heavy Metal, Dark Fantasy- Anime Gets Fired Up in OP Movie](https://otakupal.com/bastard-heavy-metal-dark-fantasy-anime-gets-fired-up-in-op-movie/)
+- [Chihayafuru Manga&#39;s Final Chapter Arrives on August 1](https://otakupal.com/chihayafuru-mangas-final-chapter-arrives-on-august-1/)
+- [Crunchyroll to Participate in AnimeShow &amp; ComicSalon in Bratislava from July 1-3!](https://otakupal.com/crunchyroll-to-participate-in-animeshow-comicsalon-in-bratislava-from-july-1-3/)
+- [Yuki Yamada, Shimofuri Myojo Members Join ONE PIECE FILM RED as Jellyfish Pirates](https://otakupal.com/yuki-yamada-shimofuri-myojo-members-join-one-piece-film-red-as-jellyfish-pirates/)
+- [Singer-Songwriter eill Provides Theme Song for The Tunnel to Summer, the Exit of Goodbyes Anime Film](https://otakupal.com/singer-songwriter-eill-provides-theme-song-for-the-tunnel-to-summer-the-exit-of-goodbyes-anime-film/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
