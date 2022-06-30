@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [BASTARD!! -Heavy Metal, Dark Fantasy- Anime Gets Fired Up in OP Movie](https://otakupal.com/bastard-heavy-metal-dark-fantasy-anime-gets-fired-up-in-op-movie/)
-- [Chihayafuru Manga&#39;s Final Chapter Arrives on August 1](https://otakupal.com/chihayafuru-mangas-final-chapter-arrives-on-august-1/)
-- [Crunchyroll to Participate in AnimeShow &amp; ComicSalon in Bratislava from July 1-3!](https://otakupal.com/crunchyroll-to-participate-in-animeshow-comicsalon-in-bratislava-from-july-1-3/)
-- [Yuki Yamada, Shimofuri Myojo Members Join ONE PIECE FILM RED as Jellyfish Pirates](https://otakupal.com/yuki-yamada-shimofuri-myojo-members-join-one-piece-film-red-as-jellyfish-pirates/)
-- [Singer-Songwriter eill Provides Theme Song for The Tunnel to Summer, the Exit of Goodbyes Anime Film](https://otakupal.com/singer-songwriter-eill-provides-theme-song-for-the-tunnel-to-summer-the-exit-of-goodbyes-anime-film/)
+- [Danganronpa S: Ultimate Summer Camp Launches for PC, PlayStation, and Mobile in July](https://otakupal.com/danganronpa-s-ultimate-summer-camp-launches-for-pc-playstation-and-mobile-in-july/)
+- [Watch Idol Land Pripara&#39;s Official CG Live Clip Featuring Dark Idol Mario](https://otakupal.com/watch-idol-land-priparas-official-cg-live-clip-featuring-dark-idol-mario/)
+- [Tokusatsu-inspired 1987 OVA Campus Special Investigator Hikaruon Gets Blu-ray Release in October](https://otakupal.com/tokusatsu-inspired-1987-ova-campus-special-investigator-hikaruon-gets-blu-ray-release-in-october/)
+- [&quot;Love Live! Sunshine!!&quot; Unit Aqours Celebrates Their 7th Anniversary with Special Illustration](https://otakupal.com/love-live-sunshine-unit-aqours-celebrates-their-7th-anniversary-with-special-illustration/)
+- [Rent-A-Girlfriend Live-action Drama Releases Special PVs Introducing Each of The Four Heroines](https://otakupal.com/rent-a-girlfriend-live-action-drama-releases-special-pvs-introducing-each-of-the-four-heroines/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
