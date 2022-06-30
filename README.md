@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Sword Art Online: Alicization Lycoris Teases Blooming of Matricaria DLC](https://otakupal.com/sword-art-online-alicization-lycoris-teases-blooming-of-matricaria-dlc/)
 - [DON&#39;T TOY WITH ME, MISS NAGATORO Season 2 Set for January 2023](https://otakupal.com/dont-toy-with-me-miss-nagatoro-season-2-set-for-january-2023/)
 - [Don’t Toy With Me, Miss Nagatoro Season 2 Announced For January 2023](https://otakupal.com/dont-toy-with-me-miss-nagatoro-season-2-announced-for-january-2023/)
 - [Rent A Girlfriend Service In Japan Have A Strict Criteria For Hiring](https://otakupal.com/rent-a-girlfriend-service-in-japan-have-a-strict-criteria-for-hiring/)
 - [Danganronpa S: Ultimate Summer Camp Launches for PC, PlayStation, and Mobile in July](https://otakupal.com/danganronpa-s-ultimate-summer-camp-launches-for-pc-playstation-and-mobile-in-july/)
-- [Watch Idol Land Pripara&#39;s Official CG Live Clip Featuring Dark Idol Mario](https://otakupal.com/watch-idol-land-priparas-official-cg-live-clip-featuring-dark-idol-mario/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
