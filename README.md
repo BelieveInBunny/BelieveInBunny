@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Sword Art Online: Alicization Lycoris Teases Blooming of Matricaria DLC](https://otakupal.com/sword-art-online-alicization-lycoris-teases-blooming-of-matricaria-dlc/)
-- [DON&#39;T TOY WITH ME, MISS NAGATORO Season 2 Set for January 2023](https://otakupal.com/dont-toy-with-me-miss-nagatoro-season-2-set-for-january-2023/)
-- [Don’t Toy With Me, Miss Nagatoro Season 2 Announced For January 2023](https://otakupal.com/dont-toy-with-me-miss-nagatoro-season-2-announced-for-january-2023/)
-- [Rent A Girlfriend Service In Japan Have A Strict Criteria For Hiring](https://otakupal.com/rent-a-girlfriend-service-in-japan-have-a-strict-criteria-for-hiring/)
-- [Danganronpa S: Ultimate Summer Camp Launches for PC, PlayStation, and Mobile in July](https://otakupal.com/danganronpa-s-ultimate-summer-camp-launches-for-pc-playstation-and-mobile-in-july/)
+- [Will There Be Rising of the Shield Hero Season 3?](https://otakupal.com/will-there-be-rising-of-the-shield-hero-season-3/)
+- [Dark Shadows Gather in Utawarerumono Mask of Truth TV Anime Teaser](https://otakupal.com/dark-shadows-gather-in-utawarerumono-mask-of-truth-tv-anime-teaser/)
+- [Hunter x Hunter Author Reveals How He Started Drawing Again Despite Having Severe Back Pain](https://otakupal.com/hunter-x-hunter-author-reveals-how-he-started-drawing-again-despite-having-severe-back-pain/)
+- [Check Out the Non-Credit ED for Shine On! Bakumatsu Bad Boys](https://otakupal.com/check-out-the-non-credit-ed-for-shine-on-bakumatsu-bad-boys/)
+- [Domestic Life is Hellish in Chimimo TV Anime Trailer](https://otakupal.com/domestic-life-is-hellish-in-chimimo-tv-anime-trailer/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
