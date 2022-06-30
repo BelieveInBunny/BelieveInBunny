@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [DON&#39;T TOY WITH ME, MISS NAGATORO Season 2 Set for January 2023](https://otakupal.com/dont-toy-with-me-miss-nagatoro-season-2-set-for-january-2023/)
+- [Don’t Toy With Me, Miss Nagatoro Season 2 Announced For January 2023](https://otakupal.com/dont-toy-with-me-miss-nagatoro-season-2-announced-for-january-2023/)
+- [Rent A Girlfriend Service In Japan Have A Strict Criteria For Hiring](https://otakupal.com/rent-a-girlfriend-service-in-japan-have-a-strict-criteria-for-hiring/)
 - [Danganronpa S: Ultimate Summer Camp Launches for PC, PlayStation, and Mobile in July](https://otakupal.com/danganronpa-s-ultimate-summer-camp-launches-for-pc-playstation-and-mobile-in-july/)
 - [Watch Idol Land Pripara&#39;s Official CG Live Clip Featuring Dark Idol Mario](https://otakupal.com/watch-idol-land-priparas-official-cg-live-clip-featuring-dark-idol-mario/)
-- [Tokusatsu-inspired 1987 OVA Campus Special Investigator Hikaruon Gets Blu-ray Release in October](https://otakupal.com/tokusatsu-inspired-1987-ova-campus-special-investigator-hikaruon-gets-blu-ray-release-in-october/)
-- [&quot;Love Live! Sunshine!!&quot; Unit Aqours Celebrates Their 7th Anniversary with Special Illustration](https://otakupal.com/love-live-sunshine-unit-aqours-celebrates-their-7th-anniversary-with-special-illustration/)
-- [Rent-A-Girlfriend Live-action Drama Releases Special PVs Introducing Each of The Four Heroines](https://otakupal.com/rent-a-girlfriend-live-action-drama-releases-special-pvs-introducing-each-of-the-four-heroines/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
