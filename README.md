@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Will There Be Rising of the Shield Hero Season 3?](https://otakupal.com/will-there-be-rising-of-the-shield-hero-season-3/)
-- [Dark Shadows Gather in Utawarerumono Mask of Truth TV Anime Teaser](https://otakupal.com/dark-shadows-gather-in-utawarerumono-mask-of-truth-tv-anime-teaser/)
-- [Hunter x Hunter Author Reveals How He Started Drawing Again Despite Having Severe Back Pain](https://otakupal.com/hunter-x-hunter-author-reveals-how-he-started-drawing-again-despite-having-severe-back-pain/)
-- [Check Out the Non-Credit ED for Shine On! Bakumatsu Bad Boys](https://otakupal.com/check-out-the-non-credit-ed-for-shine-on-bakumatsu-bad-boys/)
-- [Domestic Life is Hellish in Chimimo TV Anime Trailer](https://otakupal.com/domestic-life-is-hellish-in-chimimo-tv-anime-trailer/)
+- [Digimon Survive Gameplay Trailer Shows How to Talk &lpar;and Fight&rpar; It Out](https://otakupal.com/digimon-survive-gameplay-trailer-shows-how-to-talk-and-fight-it-out/)
+- [EXCLUSIVE: Funko Reveals New Boruto POP! Deluxe Figure for Hashirama Senju](https://otakupal.com/exclusive-funko-reveals-new-boruto-pop-deluxe-figure-for-hashirama-senju/)
+- [RECS: 9 Anime To Watch If You Like Stranger Things Season 4](https://otakupal.com/recs-9-anime-to-watch-if-you-like-stranger-things-season-4/)
+- [Antagonists Gather in New Key Visual for ORIENT TV Anime Cour 2](https://otakupal.com/antagonists-gather-in-new-key-visual-for-orient-tv-anime-cour-2/)
+- [Goodbye, Don Glees! Anime Film Hits U.S. Theaters in September](https://otakupal.com/goodbye-don-glees-anime-film-hits-u-s-theaters-in-september/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
