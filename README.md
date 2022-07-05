@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Digimon Survive Gameplay Trailer Shows How to Talk &lpar;and Fight&rpar; It Out](https://otakupal.com/digimon-survive-gameplay-trailer-shows-how-to-talk-and-fight-it-out/)
-- [EXCLUSIVE: Funko Reveals New Boruto POP! Deluxe Figure for Hashirama Senju](https://otakupal.com/exclusive-funko-reveals-new-boruto-pop-deluxe-figure-for-hashirama-senju/)
-- [RECS: 9 Anime To Watch If You Like Stranger Things Season 4](https://otakupal.com/recs-9-anime-to-watch-if-you-like-stranger-things-season-4/)
-- [Antagonists Gather in New Key Visual for ORIENT TV Anime Cour 2](https://otakupal.com/antagonists-gather-in-new-key-visual-for-orient-tv-anime-cour-2/)
-- [Goodbye, Don Glees! Anime Film Hits U.S. Theaters in September](https://otakupal.com/goodbye-don-glees-anime-film-hits-u-s-theaters-in-september/)
+- [Solo Leveling – OFFICIAL TRAILER](https://otakupal.com/solo-leveling-official-trailer/)
+- [FEATURE: SPY x FAMILY&#39;s Loid and Yor Forger Are Great Spies and Better Parents](https://otakupal.com/feature-spy-x-familys-loid-and-yor-forger-are-great-spies-and-better-parents/)
+- [Free!–the Final Stroke– The Second Volume Splashes Past 910 Million Yen at JP Box Office](https://otakupal.com/free-the-final-stroke-the-second-volume-splashes-past-910-million-yen-at-jp-box-office/)
+- [Chainsaw Man Pop-Up Shop Celebrates Series with Expensive Jewelry](https://otakupal.com/chainsaw-man-pop-up-shop-celebrates-series-with-expensive-jewelry/)
+- [Lollipop Chainsaw Remake in the Works for 2023 Global Launch](https://otakupal.com/lollipop-chainsaw-remake-in-the-works-for-2023-global-launch/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
