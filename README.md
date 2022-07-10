@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Dr. STONE Teaser Prepares Us for Season 3&#39;s New World in Spring 2023](https://otakupal.com/dr-stone-teaser-prepares-us-for-season-3s-new-world-in-spring-2023/)
+- [The DioField Chronicle RPG Shows Off Footage in Release Date Trailer](https://otakupal.com/the-diofield-chronicle-rpg-shows-off-footage-in-release-date-trailer/)
 - [Sasaki and Miyano Anime Film, Spin-Off Episode Announced for 2023](https://otakupal.com/sasaki-and-miyano-anime-film-spin-off-episode-announced-for-2023/)
 - [A Couple Of Cuckoos Gets A New Key Visual And Trailer For 2nd Cour](https://otakupal.com/a-couple-of-cuckoos-gets-a-new-key-visual-and-trailer-for-2nd-cour/)
 - [Otakon Announces Voice Actress Mariya Ise As Featured Guest](https://otakupal.com/otakon-announces-voice-actress-mariya-ise-as-featured-guest/)
-- [GrimGrimoire OnceMore Trailer Weaves Some Sorcery Class Magic](https://otakupal.com/grimgrimoire-oncemore-trailer-weaves-some-sorcery-class-magic/)
-- [FEATURE: Love Live! Nijigasaki&#39;s Season 2 Finale Feels Like A Live Concert](https://otakupal.com/feature-love-live-nijigasakis-season-2-finale-feels-like-a-live-concert/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
