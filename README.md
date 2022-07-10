@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Solo Leveling – OFFICIAL TRAILER](https://otakupal.com/solo-leveling-official-trailer/)
-- [FEATURE: SPY x FAMILY&#39;s Loid and Yor Forger Are Great Spies and Better Parents](https://otakupal.com/feature-spy-x-familys-loid-and-yor-forger-are-great-spies-and-better-parents/)
-- [Free!–the Final Stroke– The Second Volume Splashes Past 910 Million Yen at JP Box Office](https://otakupal.com/free-the-final-stroke-the-second-volume-splashes-past-910-million-yen-at-jp-box-office/)
-- [Chainsaw Man Pop-Up Shop Celebrates Series with Expensive Jewelry](https://otakupal.com/chainsaw-man-pop-up-shop-celebrates-series-with-expensive-jewelry/)
-- [Lollipop Chainsaw Remake in the Works for 2023 Global Launch](https://otakupal.com/lollipop-chainsaw-remake-in-the-works-for-2023-global-launch/)
+- [Sasaki and Miyano Anime Film, Spin-Off Episode Announced for 2023](https://otakupal.com/sasaki-and-miyano-anime-film-spin-off-episode-announced-for-2023/)
+- [A Couple Of Cuckoos Gets A New Key Visual And Trailer For 2nd Cour](https://otakupal.com/a-couple-of-cuckoos-gets-a-new-key-visual-and-trailer-for-2nd-cour/)
+- [Otakon Announces Voice Actress Mariya Ise As Featured Guest](https://otakupal.com/otakon-announces-voice-actress-mariya-ise-as-featured-guest/)
+- [GrimGrimoire OnceMore Trailer Weaves Some Sorcery Class Magic](https://otakupal.com/grimgrimoire-oncemore-trailer-weaves-some-sorcery-class-magic/)
+- [FEATURE: Love Live! Nijigasaki&#39;s Season 2 Finale Feels Like A Live Concert](https://otakupal.com/feature-love-live-nijigasakis-season-2-finale-feels-like-a-live-concert/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
