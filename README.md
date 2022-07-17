@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Dr. STONE Teaser Prepares Us for Season 3&#39;s New World in Spring 2023](https://otakupal.com/dr-stone-teaser-prepares-us-for-season-3s-new-world-in-spring-2023/)
-- [The DioField Chronicle RPG Shows Off Footage in Release Date Trailer](https://otakupal.com/the-diofield-chronicle-rpg-shows-off-footage-in-release-date-trailer/)
-- [Sasaki and Miyano Anime Film, Spin-Off Episode Announced for 2023](https://otakupal.com/sasaki-and-miyano-anime-film-spin-off-episode-announced-for-2023/)
-- [A Couple Of Cuckoos Gets A New Key Visual And Trailer For 2nd Cour](https://otakupal.com/a-couple-of-cuckoos-gets-a-new-key-visual-and-trailer-for-2nd-cour/)
-- [Otakon Announces Voice Actress Mariya Ise As Featured Guest](https://otakupal.com/otakon-announces-voice-actress-mariya-ise-as-featured-guest/)
+- [Jump Festa 2023 to Spread Its Manga Fun Again This December](https://otakupal.com/jump-festa-2023-to-spread-its-manga-fun-again-this-december/)
+- [Jun Shison Joins Netflix&#39;s Live-Action Yu Yu Hakusho Series as Kurama](https://otakupal.com/jun-shison-joins-netflixs-live-action-yu-yu-hakusho-series-as-kurama/)
+- [Digimon Ghost Game TV Anime&#39;s New Visual Highlights Team&#39;s Bizarre Adventure](https://otakupal.com/digimon-ghost-game-tv-animes-new-visual-highlights-teams-bizarre-adventure/)
+- [The Deer King](https://otakupal.com/the-deer-king/)
+- [FEATURE: Catch Up Before Overlord Season 4 With This Helpful Beginner&#39;s Guide](https://otakupal.com/feature-catch-up-before-overlord-season-4-with-this-helpful-beginners-guide/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
