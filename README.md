@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. ❗️ Opened issue [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
-2. 🗣 Commented on [#407](https://github.com/jikan-me/jikan/issues/407) in [jikan-me/jikan](https://github.com/jikan-me/jikan)
-3. 💪 Opened PR [#34](https://github.com/torrust/torrust-index-frontend/pull/34) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
-4. 💪 Opened PR [#31](https://github.com/torrust/torrust-index-backend/pull/31) in [torrust/torrust-index-backend](https://github.com/torrust/torrust-index-backend)
-5. ❗️ Opened issue [#13](https://github.com/aleksik/react-scratchcard/issues/13) in [aleksik/react-scratchcard](https://github.com/aleksik/react-scratchcard)
+1. 🗣 Commented on [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
+2. 🗣 Commented on [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
+3. ❗️ Opened issue [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
+4. 🗣 Commented on [#407](https://github.com/jikan-me/jikan/issues/407) in [jikan-me/jikan](https://github.com/jikan-me/jikan)
+5. 💪 Opened PR [#34](https://github.com/torrust/torrust-index-frontend/pull/34) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
 <!--END_SECTION:activity-->
 
 </details>
