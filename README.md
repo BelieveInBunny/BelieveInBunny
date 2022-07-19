@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Jump Festa 2023 to Spread Its Manga Fun Again This December](https://otakupal.com/jump-festa-2023-to-spread-its-manga-fun-again-this-december/)
-- [Jun Shison Joins Netflix&#39;s Live-Action Yu Yu Hakusho Series as Kurama](https://otakupal.com/jun-shison-joins-netflixs-live-action-yu-yu-hakusho-series-as-kurama/)
-- [Digimon Ghost Game TV Anime&#39;s New Visual Highlights Team&#39;s Bizarre Adventure](https://otakupal.com/digimon-ghost-game-tv-animes-new-visual-highlights-teams-bizarre-adventure/)
-- [The Deer King](https://otakupal.com/the-deer-king/)
-- [FEATURE: Catch Up Before Overlord Season 4 With This Helpful Beginner&#39;s Guide](https://otakupal.com/feature-catch-up-before-overlord-season-4-with-this-helpful-beginners-guide/)
+- [Black Clover The Movie 2022 Teaser Trailer](https://otakupal.com/black-clover-the-movie-2022-teaser-trailer/)
+- [Spy Classroom Official Trailer](https://otakupal.com/spy-classroom-official-trailer/)
+- [ShangriLa Frontier Official Trailer 1080p](https://otakupal.com/shangrila-frontier-official-trailer-1080p/)
+- [Suzume No Tojimari Official Trailer 2](https://otakupal.com/suzume-no-tojimari-official-trailer-2/)
+- [No More Heroes III&#39;s Galactic Tourney Dated for PlayStation, Xbox, PC](https://otakupal.com/no-more-heroes-iiis-galactic-tourney-dated-for-playstation-xbox-pc/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
