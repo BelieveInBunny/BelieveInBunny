@@ -52,11 +52,11 @@
 ### 📺 Latest YouTube Videos
 
 <!-- YOUTUBE:START -->
-- [Solo Leveling - OFFICIAL TRAILER](https://www.youtube.com/watch?v=ReEbEyRjk4Q)
-- [Grabbed My Oppai! ~ Rent A Girlfriend](https://www.youtube.com/watch?v=kwKFxLMl6r4)
-- [Head Chef! Maid! And Dragon! Tohru! ~ Miss Kobayashi&#39;s Dragon Maid&#39;s](https://www.youtube.com/watch?v=NmZYiRrpz_M)
-- [Rent A Girlfriend ~ Hentai!](https://www.youtube.com/watch?v=Bwa0yviG_Ws)
-- [Hermit&#39;s Traumatizing Past ~ Edens Zero](https://www.youtube.com/watch?v=hZUyhM-7e2E)
+- [Black Clover The Movie 2022  Teaser Trailer](https://www.youtube.com/watch?v=06jXk0b6eUk)
+- [Spy Classroom  Official Trailer](https://www.youtube.com/watch?v=SuNNBogjTx4)
+- [ShangriLa Frontier  Official Trailer 1080p](https://www.youtube.com/watch?v=rY0fWxYGBGw)
+- [Chainsaw Man  OFFICIAL TRAILER](https://www.youtube.com/watch?v=wNLguq7NqrU)
+- [Suzume No Tojimari  Official Trailer 2](https://www.youtube.com/watch?v=ZKdIW-5sHPo)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://www.youtube.com/c/AnimeSubNetwork)
