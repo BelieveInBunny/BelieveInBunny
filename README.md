@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. 🗣 Commented on [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
+1. 🗣 Commented on [#82](https://github.com/torrust/torrust-index/issues/82) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
 2. 🗣 Commented on [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
-3. ❗️ Opened issue [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
-4. 🗣 Commented on [#407](https://github.com/jikan-me/jikan/issues/407) in [jikan-me/jikan](https://github.com/jikan-me/jikan)
-5. 💪 Opened PR [#34](https://github.com/torrust/torrust-index-frontend/pull/34) in [torrust/torrust-index-frontend](https://github.com/torrust/torrust-index-frontend)
+3. 🗣 Commented on [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
+4. ❗️ Opened issue [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
+5. 🗣 Commented on [#407](https://github.com/jikan-me/jikan/issues/407) in [jikan-me/jikan](https://github.com/jikan-me/jikan)
 <!--END_SECTION:activity-->
 
 </details>
