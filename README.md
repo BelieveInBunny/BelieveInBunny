@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. 🎉 Merged PR [#5](https://github.com/BelieveInBunny/torrust/pull/5) in [BelieveInBunny/torrust](https://github.com/BelieveInBunny/torrust)
-2. 💪 Opened PR [#5](https://github.com/BelieveInBunny/torrust/pull/5) in [BelieveInBunny/torrust](https://github.com/BelieveInBunny/torrust)
-3. ❌ Closed PR [#83](https://github.com/torrust/torrust-index/pull/83) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
-4. 🗣 Commented on [#83](https://github.com/torrust/torrust-index/issues/83) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
-5. 💪 Opened PR [#83](https://github.com/torrust/torrust-index/pull/83) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
+1. ❗️ Closed issue [#13](https://github.com/aleksik/react-scratchcard/issues/13) in [aleksik/react-scratchcard](https://github.com/aleksik/react-scratchcard)
+2. 🗣 Commented on [#13](https://github.com/aleksik/react-scratchcard/issues/13) in [aleksik/react-scratchcard](https://github.com/aleksik/react-scratchcard)
+3. 🎉 Merged PR [#5](https://github.com/BelieveInBunny/torrust/pull/5) in [BelieveInBunny/torrust](https://github.com/BelieveInBunny/torrust)
+4. 💪 Opened PR [#5](https://github.com/BelieveInBunny/torrust/pull/5) in [BelieveInBunny/torrust](https://github.com/BelieveInBunny/torrust)
+5. ❌ Closed PR [#83](https://github.com/torrust/torrust-index/pull/83) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
 <!--END_SECTION:activity-->
 
 </details>
