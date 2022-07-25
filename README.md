@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. 🗣 Commented on [#82](https://github.com/torrust/torrust-index/issues/82) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
-2. 🗣 Commented on [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
-3. 🗣 Commented on [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
-4. ❗️ Opened issue [#497](https://github.com/coollabsio/coolify/issues/497) in [coollabsio/coolify](https://github.com/coollabsio/coolify)
-5. 🗣 Commented on [#407](https://github.com/jikan-me/jikan/issues/407) in [jikan-me/jikan](https://github.com/jikan-me/jikan)
+1. 🎉 Merged PR [#5](https://github.com/BelieveInBunny/torrust/pull/5) in [BelieveInBunny/torrust](https://github.com/BelieveInBunny/torrust)
+2. 💪 Opened PR [#5](https://github.com/BelieveInBunny/torrust/pull/5) in [BelieveInBunny/torrust](https://github.com/BelieveInBunny/torrust)
+3. ❌ Closed PR [#83](https://github.com/torrust/torrust-index/pull/83) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
+4. 🗣 Commented on [#83](https://github.com/torrust/torrust-index/issues/83) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
+5. 💪 Opened PR [#83](https://github.com/torrust/torrust-index/pull/83) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
 <!--END_SECTION:activity-->
 
 </details>
