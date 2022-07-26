@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Black Clover The Movie 2022 Teaser Trailer](https://otakupal.com/black-clover-the-movie-2022-teaser-trailer/)
-- [Spy Classroom Official Trailer](https://otakupal.com/spy-classroom-official-trailer/)
-- [ShangriLa Frontier Official Trailer 1080p](https://otakupal.com/shangrila-frontier-official-trailer-1080p/)
-- [Suzume No Tojimari Official Trailer 2](https://otakupal.com/suzume-no-tojimari-official-trailer-2/)
-- [No More Heroes III&#39;s Galactic Tourney Dated for PlayStation, Xbox, PC](https://otakupal.com/no-more-heroes-iiis-galactic-tourney-dated-for-playstation-xbox-pc/)
+- [Original Anime Love Flops Sets Up Fall Date with New Trailer, Staff Lineup](https://otakupal.com/original-anime-love-flops-sets-up-fall-date-with-new-trailer-staff-lineup/)
+- [The House of the Lost on the Cape Anime Film Hits Blu-ray in September](https://otakupal.com/the-house-of-the-lost-on-the-cape-anime-film-hits-blu-ray-in-september/)
+- [Supernatural Horror Manga Dark Gathering Gets TV Anime in 2023](https://otakupal.com/supernatural-horror-manga-dark-gathering-gets-tv-anime-in-2023/)
+- [Laid-Back Camp Movie Filmgoers Get Filmstrip As Free Theatrical Gift](https://otakupal.com/laid-back-camp-movie-filmgoers-get-filmstrip-as-free-theatrical-gift/)
+- [YOASOBI Vocalist ikura Tests Positive for COVID-19](https://otakupal.com/yoasobi-vocalist-ikura-tests-positive-for-covid-19/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
