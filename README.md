@@ -81,11 +81,11 @@
   <summary>:zap: Recent GitHub Activity</summary>
   
 <!--START_SECTION:activity-->
-1. ❗️ Closed issue [#13](https://github.com/aleksik/react-scratchcard/issues/13) in [aleksik/react-scratchcard](https://github.com/aleksik/react-scratchcard)
-2. 🗣 Commented on [#13](https://github.com/aleksik/react-scratchcard/issues/13) in [aleksik/react-scratchcard](https://github.com/aleksik/react-scratchcard)
-3. 🎉 Merged PR [#5](https://github.com/BelieveInBunny/torrust/pull/5) in [BelieveInBunny/torrust](https://github.com/BelieveInBunny/torrust)
-4. 💪 Opened PR [#5](https://github.com/BelieveInBunny/torrust/pull/5) in [BelieveInBunny/torrust](https://github.com/BelieveInBunny/torrust)
-5. ❌ Closed PR [#83](https://github.com/torrust/torrust-index/pull/83) in [torrust/torrust-index](https://github.com/torrust/torrust-index)
+1. ❗️ Opened issue [#16](https://github.com/Fmstrat/plex-cluster/issues/16) in [Fmstrat/plex-cluster](https://github.com/Fmstrat/plex-cluster)
+2. ❗️ Closed issue [#13](https://github.com/aleksik/react-scratchcard/issues/13) in [aleksik/react-scratchcard](https://github.com/aleksik/react-scratchcard)
+3. 🗣 Commented on [#13](https://github.com/aleksik/react-scratchcard/issues/13) in [aleksik/react-scratchcard](https://github.com/aleksik/react-scratchcard)
+4. 🎉 Merged PR [#5](https://github.com/BelieveInBunny/torrust/pull/5) in [BelieveInBunny/torrust](https://github.com/BelieveInBunny/torrust)
+5. 💪 Opened PR [#5](https://github.com/BelieveInBunny/torrust/pull/5) in [BelieveInBunny/torrust](https://github.com/BelieveInBunny/torrust)
 <!--END_SECTION:activity-->
 
 </details>
