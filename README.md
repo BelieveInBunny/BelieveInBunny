@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Original Anime Love Flops Sets Up Fall Date with New Trailer, Staff Lineup](https://otakupal.com/original-anime-love-flops-sets-up-fall-date-with-new-trailer-staff-lineup/)
-- [The House of the Lost on the Cape Anime Film Hits Blu-ray in September](https://otakupal.com/the-house-of-the-lost-on-the-cape-anime-film-hits-blu-ray-in-september/)
-- [Supernatural Horror Manga Dark Gathering Gets TV Anime in 2023](https://otakupal.com/supernatural-horror-manga-dark-gathering-gets-tv-anime-in-2023/)
-- [Laid-Back Camp Movie Filmgoers Get Filmstrip As Free Theatrical Gift](https://otakupal.com/laid-back-camp-movie-filmgoers-get-filmstrip-as-free-theatrical-gift/)
-- [YOASOBI Vocalist ikura Tests Positive for COVID-19](https://otakupal.com/yoasobi-vocalist-ikura-tests-positive-for-covid-19/)
+- [Sword Art Online -Progressive- Sequel Film Dual Wields Sharp New Visual and Trailer](https://otakupal.com/sword-art-online-progressive-sequel-film-dual-wields-sharp-new-visual-and-trailer/)
+- [Original Anime Film Spaceman X Blasts Off in 2023](https://otakupal.com/original-anime-film-spaceman-x-blasts-off-in-2023/)
+- [Sono Koe no Anata e Documentary Adds 4 More Voice Actors to Its Cast](https://otakupal.com/sono-koe-no-anata-e-documentary-adds-4-more-voice-actors-to-its-cast/)
+- [Laid-Back Camp Filmgoers Get Photo Cards Showing the Characters Going About Their Adult Lives](https://otakupal.com/laid-back-camp-filmgoers-get-photo-cards-showing-the-characters-going-about-their-adult-lives/)
+- [Overlord Theme Song Artist Masayoshi Oishi Tests Positive for COVID-19](https://otakupal.com/overlord-theme-song-artist-masayoshi-oishi-tests-positive-for-covid-19/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
