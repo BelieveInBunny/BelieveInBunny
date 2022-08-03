@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Sword Art Online -Progressive- Sequel Film Dual Wields Sharp New Visual and Trailer](https://otakupal.com/sword-art-online-progressive-sequel-film-dual-wields-sharp-new-visual-and-trailer/)
-- [Original Anime Film Spaceman X Blasts Off in 2023](https://otakupal.com/original-anime-film-spaceman-x-blasts-off-in-2023/)
-- [Sono Koe no Anata e Documentary Adds 4 More Voice Actors to Its Cast](https://otakupal.com/sono-koe-no-anata-e-documentary-adds-4-more-voice-actors-to-its-cast/)
-- [Laid-Back Camp Filmgoers Get Photo Cards Showing the Characters Going About Their Adult Lives](https://otakupal.com/laid-back-camp-filmgoers-get-photo-cards-showing-the-characters-going-about-their-adult-lives/)
-- [Overlord Theme Song Artist Masayoshi Oishi Tests Positive for COVID-19](https://otakupal.com/overlord-theme-song-artist-masayoshi-oishi-tests-positive-for-covid-19/)
+- [Tamiki Wakaki&#39;s Rom-com Manga Are You Really Getting Married? Gets Live-action Drama in October](https://otakupal.com/tamiki-wakakis-rom-com-manga-are-you-really-getting-married-gets-live-action-drama-in-october/)
+- [Eir Aoi Says She is Truly Happy to Sing Sword Art Online -Progressive- 2nd Film&#39;s Theme Song](https://otakupal.com/eir-aoi-says-she-is-truly-happy-to-sing-sword-art-online-progressive-2nd-films-theme-song/)
+- [Makoto Shinkai&#39;s Suzume Anime Film Puts Spotlight on Characters](https://otakupal.com/makoto-shinkais-suzume-anime-film-puts-spotlight-on-characters/)
+- [SING “YESTERDAY” FOR ME English Dub Announced, Cast &amp; Crew Revealed](https://otakupal.com/sing-yesterday-for-me-english-dub-announced-cast-crew-revealed/)
+- [Kemono Friends 3 PlayStation 4 Version Ends Service After Two Months](https://otakupal.com/kemono-friends-3-playstation-4-version-ends-service-after-two-months/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
