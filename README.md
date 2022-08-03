@@ -66,11 +66,11 @@
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Voice Actress Idol Unit i☆Ris&#39; Kakegurui Twin Ending Theme MV Reaches 2 Million Views](https://otakupal.com/voice-actress-idol-unit-i%e2%98%86ris-kakegurui-twin-ending-theme-mv-reaches-2-million-views/)
 - [Tamiki Wakaki&#39;s Rom-com Manga Are You Really Getting Married? Gets Live-action Drama in October](https://otakupal.com/tamiki-wakakis-rom-com-manga-are-you-really-getting-married-gets-live-action-drama-in-october/)
 - [Eir Aoi Says She is Truly Happy to Sing Sword Art Online -Progressive- 2nd Film&#39;s Theme Song](https://otakupal.com/eir-aoi-says-she-is-truly-happy-to-sing-sword-art-online-progressive-2nd-films-theme-song/)
 - [Makoto Shinkai&#39;s Suzume Anime Film Puts Spotlight on Characters](https://otakupal.com/makoto-shinkais-suzume-anime-film-puts-spotlight-on-characters/)
 - [SING “YESTERDAY” FOR ME English Dub Announced, Cast &amp; Crew Revealed](https://otakupal.com/sing-yesterday-for-me-english-dub-announced-cast-crew-revealed/)
-- [Kemono Friends 3 PlayStation 4 Version Ends Service After Two Months](https://otakupal.com/kemono-friends-3-playstation-4-version-ends-service-after-two-months/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://otakupal.com)
