@@ -55,8 +55,8 @@
 - [Black Clover The Movie 2022  Teaser Trailer](https://www.youtube.com/watch?v=06jXk0b6eUk)
 - [Spy Classroom  Official Trailer](https://www.youtube.com/watch?v=SuNNBogjTx4)
 - [ShangriLa Frontier  Official Trailer 1080p](https://www.youtube.com/watch?v=rY0fWxYGBGw)
-- [Chainsaw Man  OFFICIAL TRAILER](https://www.youtube.com/watch?v=wNLguq7NqrU)
 - [Suzume No Tojimari  Official Trailer 2](https://www.youtube.com/watch?v=ZKdIW-5sHPo)
+- [Solo Leveling - OFFICIAL TRAILER](https://www.youtube.com/watch?v=ReEbEyRjk4Q)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://www.youtube.com/c/AnimeSubNetwork)
